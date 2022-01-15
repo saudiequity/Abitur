@@ -1,4 +1,4 @@
 # Abitur
 Justus Knecht Gymnasium Bruchsal 
 
-Hobbys : Boxen, Laufen, Investitionen, Poker, Blackjack, Immobilieninvestitionen, Wintersport, Snowboarden 
+Hobbys : Poker, Blackjack, Boxen, Wintersport, Snowboarden, Investitionen, Immobilieninvestitionen 
