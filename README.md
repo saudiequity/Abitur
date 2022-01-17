@@ -1,7 +1,7 @@
-# Abitur
+Abitur
 Justus Knecht Gymnasium Bruchsal 
 
-# Working Experience 
+Working Experience 
 OpenSAP Enterprise  
 
 Hobbys : Poker, Blackjack, Crossfit, Wintersport, Snowboarden, Investitionen, Immobilieninvestitionen 
