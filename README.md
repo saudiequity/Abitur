@@ -4,6 +4,7 @@ Justus Knecht Gymnasium Bruchsal
 
 # Working Experience 
 
+SAP Walldorf, IT Architect and Developer 
 OpenSAP Enterprise  
 
 Hobbys : Poker, Blackjack, Crossfit, Wintersport, Snowboarden, Investitionen, Immobilieninvestitionen 
