@@ -8,6 +8,9 @@ SAP Walldorf, IT Architect and Developer
 
 OpenSAP Enterprise Platform 
 
+
+# Residenz 
+
 Hobbys : Poker, Blackjack, Crossfit, Wintersport, Snowboarden, Investitionen, Immobilieninvestitionen 
 
 Wohnort: San Francisco, California 
