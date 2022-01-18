@@ -1,18 +1,19 @@
 # Abitur
 
-Justus Knecht Gymnasium Bruchsal 
+▪︎Justus Knecht Gymnasium Bruchsal 
 
 # Working Experience 
 
-SAP Walldorf, IT Architect 
+▪︎SAP Walldorf, IT Architect 
 
-OpenSAP Enterprise Platform 
+▪︎OpenSAP Enterprise Platform 
 
 
 # Residenz 
 
-Hobbys : Poker, Blackjack, Crossfit, Wintersport, Snowboarden, Investitionen
+▪︎Hobbys : Poker, Blackjack, Crossfit, Wintersport, Snowboarden,       
+           Investitionen
 
-Wohnort: San Francisco, California 
+▪︎Wohnort: San Francisco, California 
 
-Heimat: New York City, Vereinigte Staaten
+▪︎Heimat: New York City, Vereinigte Staaten
