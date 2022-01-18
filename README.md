@@ -4,7 +4,7 @@ Justus Knecht Gymnasium Bruchsal
 
 # Working Experience 
 
-SAP Walldorf, IT Architect and Developer
+SAP Walldorf, IT Architect 
 
 OpenSAP Enterprise Platform 
 
