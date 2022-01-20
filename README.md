@@ -10,6 +10,8 @@
 
 # CFA Institute Investment Foundations 
 
+▪︎ Asia Equity Portfolio 
+
 # Residenz 
 
 ▪︎Hobbys : Poker, Blackjack, Crossfit, Wintersport, Snowboarden, Investitionen, Immobilieninvestitionen 
