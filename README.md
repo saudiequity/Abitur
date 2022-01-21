@@ -11,6 +11,7 @@
 # CFA Institute Investment Foundations 
 
 ▪︎ Asia Equity Portfolio 
+https://docs.google.com/spreadsheets/d/e/2PACX-1vTE0jBCKDZvs4cD-14wPSxG6pOWQyjJReTpcpuc8jFzjLonAXfiKNmpDdYsCp2Qj13Tgop-NrhzOSqs/pubchart?oid=306162262&format=interactive
 
 # Residenz 
 
