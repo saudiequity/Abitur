@@ -1,12 +1,12 @@
 # Abitur
 
-▪︎Justus Knecht Gymnasium Bruchsal 
+▪︎ Justus Knecht Gymnasium Bruchsal 
 
 # Working Experience 
 
-▪︎SAP Walldorf, IT Architect 
+▪︎ SAP Walldorf, IT Architect 
 
-▪︎OpenSAP Enterprise Platform 
+▪︎ OpenSAP Enterprise Platform 
 
 # CFA Institute Investment Foundations 
 
@@ -14,8 +14,14 @@
 
 # Residenz 
 
-▪︎Hobbys : Poker, Blackjack, Crossfit, Wintersport, Snowboarden, Investitionen, Immobilieninvestitionen 
+▪︎ Hobbys : Poker, Blackjack, Crossfit, Wintersport, Snowboarden, Investitionen, Immobilieninvestitionen 
 
-▪︎Wohnort: San Francisco, California 
+▪︎ Wohnort: San Francisco, California 
 
-▪︎Heimat: New York City, Vereinigte Staaten
+▪︎ Heimat: New York City, Vereinigte Staaten
+
+# Ideologie
+
+▪︎ Religion: Mekka KSA
+
+▪︎ Politische Ansichten: Crown Prince Mohammad bin Salman
