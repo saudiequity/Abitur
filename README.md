@@ -10,7 +10,8 @@
 
 # CFA Institute Investment Foundations 
 
-▪︎ Asia Equity Portfolio 
+▪︎ Swiss Equity Portfolio 
+▪︎ Industrial Companies 
 
 # Residenz 
 
