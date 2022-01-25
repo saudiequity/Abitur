@@ -11,7 +11,7 @@
 # CFA Institute Investment Foundations 
 
 ▪︎ Swiss Equity Portfolio 
-▪︎ Industrieunternehmen,  IT-Unternehmen
+▪︎ Industrieunternehmen,  IT-Unternehmen, Großbank, Real Estate
 
 # Residenz 
 
