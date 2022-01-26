@@ -6,13 +6,13 @@
 
 ▪︎ OpenSAP Enterprise Archtitecture
 
-# Potsdam Universitaet 
-
-▪︎ GmbH-Geschäftsfuehrer 
-
 # Working Experience 
 
 ▪︎ SAP Walldorf, IT Architect 
+
+# Potsdam Universitaet 
+
+▪︎ GmbH-Geschäftsfuehrer 
 
 # CFA Institute Investment Foundations 
 
