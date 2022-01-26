@@ -30,6 +30,6 @@
 
 # Ideologie
 
-▪︎ Religion: Mekka KSA 
+▪︎ Religion: DIFC Grand Mosque (Dubai International Financial Centre)
 
-▪︎ Politische Ansichten: DIFC Grand Mosque (Dubai International Financial Centre)
+▪︎ Politische Ansichten: Crown Prince Mohammad bin Salman 
