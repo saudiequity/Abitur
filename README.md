@@ -16,7 +16,7 @@
 
 # Hanken School of Economics
 
-▪︎ Portfolio Theory
+▪︎ Concepts of Finance
 
 # CFA Institute Investment Foundations 
 
