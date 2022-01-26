@@ -4,7 +4,11 @@
 
 # St. Gallen HSG
 
-▪︎ OpenSAP Enterprise Platform 
+▪︎ OpenSAP Enterprise Archtitecture
+
+# Potsdam Universitaet 
+
+▪︎ GmbH-Geschäftsfuehrer 
 
 # Working Experience 
 
@@ -24,6 +28,6 @@
 
 # Ideologie
 
-▪︎ Religion: DIFC Grand Mosque 
+▪︎ Religion: Mekka KSA 
 
-▪︎ Politische Ansichten: Dubai International Financial Centre
+▪︎ Politische Ansichten: Crown Prince Mohammad bin Salman
