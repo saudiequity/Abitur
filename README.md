@@ -2,11 +2,13 @@
 
 ▪︎ Justus Knecht Gymnasium Bruchsal 
 
+# St. Gallen HSG
+
+▪︎ OpenSAP Enterprise Platform 
+
 # Working Experience 
 
 ▪︎ SAP Walldorf, IT Architect 
-
-▪︎ OpenSAP Enterprise Platform 
 
 # CFA Institute Investment Foundations 
 
