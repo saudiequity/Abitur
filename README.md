@@ -34,5 +34,6 @@
 
 # Ideologie
 
-▪︎ Religion: Mekka KSA 
+▪︎ Religion: Mekka KSA
+
 ▪︎ Politische Ansichten: DIFC Grand Mosque (Dubai International Financial Centre)
