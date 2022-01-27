@@ -10,6 +10,10 @@
 
 ▪︎ SAP Walldorf, IT Architect 
 
+# Potsdam University 
+
+▪︎ GmbH-Geschäftsfuehrer 
+
 # Hanken School of Economics
 
 ▪︎ Concepts of Finance
