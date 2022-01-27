@@ -32,7 +32,7 @@
 
 ▪︎ Heimat: New York City, Vereinigte Staaten
 
-# Contact Data
+# Contact Details 
 
 ▪︎ Mobile Number : +491628867324
 
