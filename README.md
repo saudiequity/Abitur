@@ -12,7 +12,7 @@
 
 # Potsdam University 
 
-▪︎ GmbH-Geschäftsfuehrer 
+▪︎ Unternehmensgruendung 
 
 # Hanken School of Economics
 
