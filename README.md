@@ -34,6 +34,6 @@
 
 # Ideologie
 
-▪︎ Religion: Mekka KSA
+▪︎ Religion: Kuwait Oil Company 
 
 ▪︎ Politische Ansichten: DIFC Grand Mosque (Dubai International Financial Centre)
