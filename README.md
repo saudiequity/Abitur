@@ -10,7 +10,7 @@
 
 ▪︎ SAP Walldorf, IT Architect 
 
-# Potsdam University 
+# Potsdam Universitaet 
 
 ▪︎ Unternehmensgruendung 
 
