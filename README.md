@@ -32,6 +32,12 @@
 
 ▪︎ Heimat: New York City, Vereinigte Staaten
 
+# Contact Data
+
+▪︎ Mobile Number : +491628867324
+
+▪︎ eMail Address: I.Ahmad@vodafone.de 
+
 # Ideologie
 
 ▪︎ Religion: Kuwait Oil Company 
