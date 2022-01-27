@@ -36,4 +36,6 @@
 
 ▪︎ Religion: Kuwait Oil Company 
 
-▪︎ Politische Ansichten: DIFC Grand Mosque (Dubai International Financial Centre)
+▪︎ Business Operation: DIFC Grand Mosque (Dubai International Financial Centre)
+
+▪︎ Governance: Crown Prince Mohammad bin Salman
