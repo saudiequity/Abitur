@@ -12,9 +12,9 @@
 
 # Potsdam Universitaet 
 
-▪︎ Unternehmensgruendung 
+▪︎ IT-Management
 
-# Hanken School of Economics
+# Hanken School of Economic
 
 ▪︎ Concepts of Finance
 
