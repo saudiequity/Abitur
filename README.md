@@ -36,7 +36,7 @@
 
 # Ideologie
 
-▪︎ Religion: Mekka KSA 
+▪︎ Religion: Kuwait Oil Company 
 
 ▪︎ Financial Hub: DIFC (Dubai International Financial Centre)
 
