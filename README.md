@@ -13,7 +13,7 @@
 
 # Potsdam Universitaet 
 
-▪︎ IT-Managemen
+▪︎ IT-Management
 
 # New York Institute of Finance
 
