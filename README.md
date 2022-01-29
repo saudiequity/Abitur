@@ -14,7 +14,7 @@
 
 # New York Institute of Finance
 
-▪︎ Mergers and Acquisitions
+▪︎ Mergers and Acquisitions: Concepts and Theories
 
 # CFA Institute Investment Foundations 
 
