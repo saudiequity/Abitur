@@ -10,7 +10,7 @@
 
 # Universitaet Potsdam - Digital Engineering Fakultaet
 
-▪︎ KI-Manager (IHK Potsdam)
+▪︎ Informatikkaufmann (IHK Potsdam)
 
 # Hanken School of Economics
 
