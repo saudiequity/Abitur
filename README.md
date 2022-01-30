@@ -10,7 +10,7 @@
 
 # Universitaet Potsdam - Digital Engineering
 
-▪︎ IT-Management 
+▪︎ Mathematik der Algorithmik 
 
 # CFA Institute Investment Foundations 
 
