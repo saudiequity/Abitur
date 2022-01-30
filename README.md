@@ -22,9 +22,6 @@
 
 ▪︎ Concepts of Finance and Wealth Management
 
-![hanken_logo-3](https://user-images.githubusercontent.com/95079463/151692005-28f32e06-0fee-4399-bbc6-be5957055986.png)
-
-
 # CFA Institute Investment Foundations 
 
 ![wm1isosw_1640174148](https://user-images.githubusercontent.com/95079463/151157248-4fa7d6fe-7dc8-4cd3-a9e1-3263252d3028.png)
