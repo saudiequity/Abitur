@@ -16,7 +16,7 @@
 
 # Kings College London
 
-▪︎ Business Management and Engineering
+▪︎ Industrial Engineering
 
 # Hanken School of Economics
 
