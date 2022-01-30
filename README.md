@@ -11,6 +11,7 @@
 # Potsdam Universitaet 
 
 ▪︎ IT-Management 
+
 ▪︎ GmbH-Geschaeftsfuehrer
 
 # CFA Institute Investment Foundations 
