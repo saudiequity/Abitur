@@ -10,7 +10,7 @@
 
 # Universitaet Potsdam 
 
-▪︎ Enterprise Computing
+▪︎ KI-Manager (IHK Potsdam)
 
 # Hanken School of Economics
 
