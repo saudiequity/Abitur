@@ -16,7 +16,7 @@
 
 # Hanken School of Economics
 
-▪︎ Concepts of Finance
+▪︎ Concepts of Finance and Wealth Management
 
 ![hanken_logo-3](https://user-images.githubusercontent.com/95079463/151692005-28f32e06-0fee-4399-bbc6-be5957055986.png)
 
