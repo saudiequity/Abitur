@@ -22,7 +22,7 @@
 
 ▪︎ Hobbys : Poker, Blackjack, Crossfit, Wintersport, Snowboarden, Investitionen, Immobilieninvestitionen 
 
-▪︎ Wohnort: Basel, Switzerland
+▪︎ Wohnort: Abu Dhabi, UAE
 
 ▪︎ Heimat: Dubai, UAE 
 
