@@ -22,7 +22,7 @@
 
 ▪︎ Hobbys : Poker, Blackjack, Crossfit, Wintersport, Snowboarden, Investitionen, Immobilieninvestitionen 
 
-▪︎ Wohnort: Abu Dhabi, UAE
+▪︎ Wohnort: San Francisco, California
 
 ▪︎ Heimat: Dubai, UAE 
 
