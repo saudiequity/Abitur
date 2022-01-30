@@ -16,7 +16,7 @@
 
 # Kings College London
 
-▪︎ Business Management and Entrepreneurship
+▪︎ Business Management and Engineering
 
 # Hanken School of Economics
 
