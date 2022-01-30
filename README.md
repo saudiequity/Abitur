@@ -14,6 +14,10 @@
 
 ▪︎ GmbH-Geschaeftsfuehrer
 
+# Kings College London
+
+▪︎ Business Management and Entrepreneurship
+
 # Hanken School of Economics
 
 ▪︎ Concepts of Finance and Wealth Management
