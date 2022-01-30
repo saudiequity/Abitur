@@ -2,6 +2,10 @@
 
 ▪︎ Justus Knecht Gymnasium Bruchsal 
 
+# Hanken School of Economics
+
+▪︎ Concepts of Finance
+
 # St. Gallen HSG
 
 ▪︎ OpenSAP Enterprise Archtitecture
