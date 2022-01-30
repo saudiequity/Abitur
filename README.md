@@ -12,8 +12,6 @@
 
 ▪︎ IT-Management 
 
-▪︎ GmbH-Geschaeftsfuehrer
-
 # Kings College London
 
 ▪︎ Industrial Engineering
