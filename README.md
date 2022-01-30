@@ -8,10 +8,6 @@
 
 ![ea1-tl_open_badge](https://user-images.githubusercontent.com/95079463/151658291-bc2de3cf-efd4-4f38-bf4a-dde187391570.png)
 
-# Universitaet Potsdam - Digital Engineering Fakultaet
-
-▪︎ Informatikkaufmann (IHK Potsdam)
-
 # Hanken School of Economics
 
 ▪︎ Concepts of Finance
