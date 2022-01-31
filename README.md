@@ -18,6 +18,9 @@
 
 ▪︎ Fachkraft für Industrie 4.0 (IHK)
 
+# Hanken School of Economics
+
+▪︎ Concepts of Finance
 
 # CFA Institute Investment Foundations 
 
