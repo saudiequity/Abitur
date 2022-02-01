@@ -2,6 +2,10 @@
 
 ▪︎ Justus Knecht Gymnasium Bruchsal 
 
+# Programming Languages
+
+▪︎ Turbo Pascal, Borland Delphi, Assembler, FORTRAN
+
 # St. Gallen HSG
 
 ▪︎ OpenSAP Enterprise Archtitecture
