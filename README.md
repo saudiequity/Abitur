@@ -4,7 +4,7 @@
 
 # Programming Languages
 
-▪︎ Turbo Pascal, Borland Delphi, Assembler, FORTRAN
+▪︎ Turbo Pascal, Borland Delphi, Assembler, Fortran
 
 # St. Gallen HSG
 
