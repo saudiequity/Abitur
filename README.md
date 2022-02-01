@@ -12,11 +12,7 @@
 
 # Universitaet Potsdam 
 
-▪︎ IT-Manager
-
-▪︎ Entrepreneurship
-
-▪︎ Fachkraft für Industrie 4.0 (IHK)
+▪︎ IT-Management & Entrepreneurship
 
 # Hanken School of Economics
 
