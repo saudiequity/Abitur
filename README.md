@@ -34,7 +34,7 @@
 
 ▪︎ Wohnort: San Francisco, California
 
-▪︎ Heimat: Dubai, UAE 
+▪︎ Heimat: Monaco, Monte-Carlo 
 
 # Contact Details 
 
@@ -46,8 +46,8 @@
 
 # Ideologie
 
-▪︎ Religion: Kuwait Oil Company 
+▪︎ Religion: Monte-Carlo Casino 
 
-▪︎ Financial Hub: DIFC (Dubai International Financial Centre)
+▪︎ Financial Hub: San Francisco, California
 
-▪︎ Governance: Crown Prince Mohammad bin Salman
+▪︎ Governance: Gouvernment Monaco
