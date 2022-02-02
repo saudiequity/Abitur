@@ -14,10 +14,6 @@
 
 ▪︎ Design Thinking & Computer Engineering
 
-# Universitaet Potsdam 
-
-▪︎ IT-Management & Entrepreneurship
-
 # Hanken School of Economics
 
 ▪︎ Concepts of Finance
