@@ -30,7 +30,7 @@
 
 ▪︎ Wohnort: San Francisco, California
 
-▪︎ Heimat: Cayman Islands 
+▪︎ Heimat: Cayman Islands, Georg Town 
 
 # Contact Details 
 
