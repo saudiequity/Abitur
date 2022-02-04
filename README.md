@@ -30,7 +30,7 @@
 
 ▪︎ Wohnort: San Francisco, California
 
-▪︎ Heimat: Monaco, Monte-Carlo 
+▪︎ Heimat: Cayman Islands 
 
 # Contact Details 
 
