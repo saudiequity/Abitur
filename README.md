@@ -42,8 +42,8 @@
 
 # Ideologie
 
-▪︎ Religion: Monte-Carlo Casino 
+▪︎ Religion: San Francisco FED
 
 ▪︎ Financial Hub: San Francisco, California
 
-▪︎ Governance: Gouvernment Monaco
+▪︎ Governance: Chamber of Commerce San Francisco 
