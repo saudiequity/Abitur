@@ -26,7 +26,7 @@
 
 # Residenz 
 
-▪︎ Hobbys : Poker, Blackjack, Crossfit, Wintersport, Snowboarden
+▪︎ Hobbys : Poker, Blackjack, Rugby, Crossfit, Snowboarden
 
 ▪︎ Wohnort: San Francisco, California
 
