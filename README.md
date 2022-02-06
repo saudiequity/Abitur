@@ -26,7 +26,7 @@
 
 # Residenz 
 
-▪︎ Hobbys : Schwimmen, Basketball, Crossfit, Snowboarden
+▪︎ Hobbys : Basketball, Crossfit, Snowboarden
 
 ▪︎ Wohnort: San Francisco, California
 
