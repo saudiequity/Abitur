@@ -14,6 +14,8 @@
 
 ▪︎ Computer Engineering
 
+▪︎ Principles of Electrical Engineering (Siemens)
+
 # Hanken School of Economics
 
 ▪︎ Concepts of Finance
