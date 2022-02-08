@@ -14,7 +14,7 @@
 
 ▪︎ Computer Engineering
 
-▪︎ Principles of Electrical Engineering (Siemens SITRAIN)
+▪︎ ABB Automation Industry
 
 # Hanken School of Economics
 
