@@ -14,7 +14,7 @@
 
 ▪︎ Computer Engineering
 
-▪︎ Principles of Electrical Engineering (Siemens)
+▪︎ Principles of Electrical Engineering (Siemens SITRAIN)
 
 # Hanken School of Economics
 
