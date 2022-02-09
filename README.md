@@ -34,7 +34,7 @@
 
 ▪︎ Heimat: Cayman Islands, Georg Town 
 
-▪︎ Kriegsdienstverweigerung, Zivildienst in Bodelshausen
+▪︎ Kriegsdienstverweigerung, Zivildienstschule in Bodelshausen
 
 # Contact Details 
 
