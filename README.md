@@ -28,7 +28,7 @@
 
 # Residenz 
 
-▪︎ Hobbys : Boxen, Crossfit, Snowboarden, Forstwirtschaft 
+▪︎ Hobbys : Boxen, Crossfit, Snowboarden, Forestry 
 
 ▪︎ Wohnort: San Francisco, California
 
