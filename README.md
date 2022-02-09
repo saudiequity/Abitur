@@ -34,6 +34,8 @@
 
 ▪︎ Heimat: Cayman Islands, Georg Town 
 
+▪︎ Kriegsdienstverweigerung, Zivildienst in Bodelshausen
+
 # Contact Details 
 
 ▪︎ Mobile Number : +491628867324
