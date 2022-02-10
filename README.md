@@ -14,7 +14,7 @@
 
 ▪︎ IBM Computer Engineering
 
-▪︎ ABB Automation / Electric Motor Fundamentals
+▪︎ ABB Automation / Electric Motor Fundamentals / Lean Six Sigma
 
 ▪︎ SIEMENS Principles of Electric Engineering
 
