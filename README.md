@@ -36,7 +36,7 @@
 
 ▪︎ Heimat: Cayman Islands, Georg Town 
 
-▪︎ Kriegsdienstverweigerung, Zivildienstschule in Bodelshausen (2006), Zivildienst in der Fürst-Stirum Klinik Bruchsal (2007)
+▪︎ Zivildienstschule in Bodelshausen (2006)
 
 # Contact Details 
 
