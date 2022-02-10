@@ -36,7 +36,6 @@
 
 ▪︎ Heimat: Cayman Islands, Georg Town 
 
-▪︎ Zivildienstschule in Bodelshausen (2006)
 
 # Contact Details 
 
