@@ -32,7 +32,7 @@
 
 ▪︎ Hobbys : Boxen, Crossfit, Snowboarden, Forestry 
 
-▪︎ Wohnort: San Francisco, California
+▪︎ Wohnort: Atlanta, Georgia
 
 ▪︎ Heimat: Cayman Islands, Georg Town 
 
