@@ -16,6 +16,8 @@
 
 ▪︎ ABB Automation / Electric Motor Fundamentals
 
+▪︎ SIEMENS Principles of Electric Engineering
+
 # Hanken School of Economics
 
 ▪︎ Concepts of Finance
