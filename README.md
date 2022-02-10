@@ -48,8 +48,8 @@
 
 # Ideologie
 
-▪︎ Religion: San Francisco FED
+▪︎ Religion: Chamber of Commerce of Atlanta 
 
-▪︎ Financial Hub: San Francisco, California
+▪︎ Financial Hub: Atlanta, Georgia
 
-▪︎ Governance: Chamber of Commerce San Francisco 
+▪︎ Governance: Atlanta FED
