@@ -16,8 +16,6 @@
 
 ▪︎ ABB Electric Motor Fundamentals / Lean Six Sigma
 
-▪︎ SIEMENS Principles of Electric Engineering
-
 # Hanken School of Economics
 
 ▪︎ Concepts of Finance
