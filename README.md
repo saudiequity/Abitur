@@ -16,9 +16,11 @@
 
 ▪︎ SIEMENS Principles of Electrical Engineering
 
-# Hanken School of Economics
+# Hanken School of Economics / Kings College London 
 
 ▪︎ Concepts of Finance
+
+▪︎ Business Management 
 
 # CFA Institute Investment Foundations
 
