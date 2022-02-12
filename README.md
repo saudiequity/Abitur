@@ -14,7 +14,7 @@
 
 ▪︎ IBM Computer Engineering
 
-▪︎ ABB Electric Motor Fundamentals 
+▪︎ ABB Automation 
 
 ▪︎ SIEMENS Principles of Electrical Engineering
 
@@ -26,7 +26,7 @@
 
 ![wm1isosw_1640174148](https://user-images.githubusercontent.com/95079463/151157248-4fa7d6fe-7dc8-4cd3-a9e1-3263252d3028.png)
 
-▪︎ Financial Engineering
+▪︎ Financial Engineer
 
 ▪︎ Swiss Equity Portfolio in Georgia, Atlanta (Industrial Companies)
 
@@ -48,8 +48,6 @@
 ▪︎ Rajput Koenigreich 
 
 ▪︎ AMD Ryzen 5 ▪︎ 32 GB RAM 
-
-▪ Financial Engineer
 
 # Ideologie
 
