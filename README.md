@@ -47,6 +47,8 @@
 
 ▪︎ AMD Ryzen 5 ▪︎ 32 GB RAM 
 
+▪︎ Industrial Tycoon
+
 # Ideologie
 
 ▪︎ Religion: Chamber of Commerce of Atlanta 
