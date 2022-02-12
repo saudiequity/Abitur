@@ -14,7 +14,7 @@
 
 ▪︎ IBM Computer Engineering
 
-▪︎ ABB Electric Motor Fundamentals / Lean Six Sigma
+▪︎ ABB Electric Motor Fundamentals 
 
 ▪︎ SIEMENS Principles of Electrical Engineering
 
@@ -49,7 +49,7 @@
 
 ▪︎ AMD Ryzen 5 ▪︎ 32 GB RAM 
 
-▪︎ Industry Tycoon
+▪ Financial Engineer
 
 # Ideologie
 
