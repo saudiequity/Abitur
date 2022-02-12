@@ -24,7 +24,7 @@
 
 # Harvard Kennedy School / Harvard University 
 
-▪︎https://credentials.edx.org/credentials/9f2fa81951c040a487dfa79271223565/
+▪︎American Government  https://credentials.edx.org/credentials/9f2fa81951c040a487dfa79271223565/
 
 
 # CFA Institute Investment Foundations
