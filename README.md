@@ -45,8 +45,6 @@
 
 ▪︎ Rajput Koenigreich 
 
-▪︎ AMD Ryzen 5 ▪︎ 32 GB RAM 
-
 # Ideologie
 
 ▪︎ Religion: Dubai DIFC Grand Mosque 
