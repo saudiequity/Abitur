@@ -32,7 +32,7 @@
 
 # Residenz 
 
-▪︎ Hobbys : Boxen, Crossfit, Snowboarden, Forestry 
+▪︎ Hobbys : Mixed Martial Arts, Crossfit, Snowboarden, Forestry 
 
 ▪︎ Wohnort: Atlanta, Georgia
 
