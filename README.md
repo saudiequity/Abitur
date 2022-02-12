@@ -14,8 +14,6 @@
 
 ▪︎ IBM Computer Engineering
 
-▪︎ ABB Automation 
-
 ▪︎ SIEMENS Principles of Electrical Engineering
 
 # Hanken School of Economics
