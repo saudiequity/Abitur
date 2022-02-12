@@ -49,8 +49,8 @@
 
 # Ideologie
 
-▪︎ Religion: Chamber of Commerce of Atlanta 
+▪︎ Religion: Dubai DIFC Grand Mosque 
 
-▪︎ Financial Hub: Atlanta, Georgia
+▪︎ Financial Hub: DIFC Dubai International Financial Centre 
 
-▪︎ Governance: Atlanta FED
+▪︎ Governance: Abu Dhabi,  UAE 
