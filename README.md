@@ -47,7 +47,7 @@
 
 ▪︎ AMD Ryzen 5 ▪︎ 32 GB RAM 
 
-▪︎ Industrial Tycoon
+▪︎ Industry Tycoon
 
 # Ideologie
 
