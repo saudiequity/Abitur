@@ -26,6 +26,7 @@
 
 ▪︎American History  https://credentials.edx.org/credentials/9f2fa81951c040a487dfa79271223565/
 
+▪︎ Statistics  https://courses.edx.org/certificates/2faea34c8631482b87b2091fe360cf81
 
 # CFA Institute Investment Foundations
 
