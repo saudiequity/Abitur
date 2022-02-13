@@ -26,7 +26,7 @@
 
 ▪︎ Financial Engineering
 
-▪︎ Swiss Equity Portfolio in Georgia, Atlanta (Industrial Companies)
+▪︎ Swiss Equity Portfolio (Industrial Companies)
 
 # Residenz 
 
