@@ -32,9 +32,9 @@
 
 ▪︎ Hobbys : Mixed Martial Arts, Crossfit, Snowboarden, Forestry 
 
-▪︎ Wohnort: Atlanta, Georgia
+▪︎ Wohnort: Monte-Carlo,  Monaco 
 
-▪︎ Heimat: Cayman Islands, Georg Town 
+▪︎ Heimat: Kuwait 
 
 
 # Contact Details 
@@ -47,8 +47,8 @@
 
 # Ideologie
 
-▪︎ Religion: Mekka KSA 
+▪︎ Religion: Kuwait 
 
-▪︎ Financial Hub: Saudi Banque Fransi 
+▪︎ Financial Hub: Kuwait NationalBank 
 
-▪︎ Governance: Crown Prince Mohammad bin Salman 
+▪︎ Governance: Kuwait Investment Authority 
