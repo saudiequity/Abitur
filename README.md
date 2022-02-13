@@ -20,17 +20,11 @@
 
 ▪︎ Business Management 
 
-# Harvard Kennedy School / Harvard University 
-
-▪︎American History  https://credentials.edx.org/credentials/9f2fa81951c040a487dfa79271223565/
-
-▪︎ Statistics  https://courses.edx.org/certificates/2faea34c8631482b87b2091fe360cf81
-
 # CFA Institute Investment Foundations
 
 ![wm1isosw_1640174148](https://user-images.githubusercontent.com/95079463/151157248-4fa7d6fe-7dc8-4cd3-a9e1-3263252d3028.png)
 
-▪︎ Financial Engineer
+▪︎ Financial Engineering
 
 ▪︎ Swiss Equity Portfolio in Georgia, Atlanta (Industrial Companies)
 
