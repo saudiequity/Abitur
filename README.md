@@ -47,8 +47,8 @@
 
 # Ideologie
 
-▪︎ Religion: Dubai DIFC Grand Mosque 
+▪︎ Religion: Mekka KSA 
 
-▪︎ Financial Hub: DIFC Dubai International Financial Centre 
+▪︎ Financial Hub: Saudi Banque Fransi 
 
-▪︎ Governance: Abu Dhabi,  UAE 
+▪︎ Governance: Crown Prince Mohammad bin Salman 
