@@ -16,12 +16,6 @@
 
 ▪︎ ABB Lean Six Sigma
 
-# Hanken School of Economics / Kings College London 
-
-▪︎ Concepts of Finance
-
-▪︎ Business Management 
-
 # CFA Institute Investment Foundations
 
 ![wm1isosw_1640174148](https://user-images.githubusercontent.com/95079463/151157248-4fa7d6fe-7dc8-4cd3-a9e1-3263252d3028.png)
@@ -41,9 +35,9 @@
 
 # Contact Details 
 
-▪︎ Mobile Number : +491628867324
+▪︎ Mobile Number : +491628867324 / +4915128118401
 
-▪︎ eMail Address: I.Ahmad@vodafone.de 
+▪︎ eMail Address: I.Ahmad@vodafone.de / babermillennium@hotmail.com 
 
 ▪︎ Rajput Koenigreich 
 
