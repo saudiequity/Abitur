@@ -4,7 +4,7 @@
 
 # Programming Languages
 
-▪︎ Turbo Pascal, Borland Compiler
+▪︎ Turbo Pascal, Borland Delphi Compiler
 
 # St. Gallen HSG 
 
