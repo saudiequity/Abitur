@@ -28,7 +28,7 @@
 
 ▪︎ Hobbys : Mixed Martial Arts, Crossfit, Snowboarden, Forestry 
 
-▪︎ Wohnort: Monte-Carlo,  Monaco 
+▪︎ Wohnort: Kuba
 
 ▪︎ Heimat: Kuwait 
 
