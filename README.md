@@ -14,6 +14,8 @@
 
 ▪︎ SIEMENS Principles of Electrical Engineering
 
+▪︎ ABB Lean Six Sigma
+
 # Hanken School of Economics / Kings College London 
 
 ▪︎ Concepts of Finance
