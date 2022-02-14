@@ -39,7 +39,7 @@
 
 ▪︎ eMail Address: I.Ahmad@vodafone.de ▪︎ babermillennium@hotmail.com 
 
-▪︎ Rajput Koenigreich 
+▪︎ Rajput Koenigreich ▪︎ Musik Genre : 50 Cent G-Unit
 
 # Ideologie
 
