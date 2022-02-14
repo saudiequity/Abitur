@@ -22,7 +22,7 @@
 
 ▪︎ Financial Engineering
 
-▪︎ Swiss Equity Portfolio (Industrial Companies)
+▪︎ Swiss Equity Portfolio©️™️ (Industrial Companies)
 
 # Residenz 
 
