@@ -6,6 +6,8 @@
 
 ▪︎ Hindu Caste: Rajput 
 
+▪︎ Einbuergerung im Jahre 2001
+
 # Programming Languages
 
 ▪︎ Turbo Pascal, Borland Delphi Compiler
