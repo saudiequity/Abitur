@@ -41,13 +41,9 @@
 
 # Contact Details 
 
-▪︎ Mobile Number : +491628867324 
+▪︎ Business contact : +491628867324 ▪︎ I.Ahmad@vodafone.de 
 
-▪︎ Business contact: +4915128118401
-
-▪︎ Business eMail: I.Ahmad@vodafone.de 
-
-▪︎ eMail Address: babermillennium@yahoo.com 
+▪︎ eMail Address: babermillennium@yahoo.com ▪︎ +4915128118401
 
 ▪︎ Rajput Koenigreich, Personal Monarchy 
 
