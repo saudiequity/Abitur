@@ -34,7 +34,7 @@
 
 ▪︎ Hobbys : Mixed Martial Arts, Crossfit, Snowboarden, Forestry 
 
-▪︎ Wohnort: Kuba
+▪︎ Wohnort: Waldbronn, BW, Germany
 
 ▪︎ Heimat: Kuwait 
 
