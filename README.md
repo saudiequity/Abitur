@@ -10,7 +10,7 @@
 
 # Harvard Kennedy School 
 
-▪︎ American History, Politics, International Affairs and Economics 
+▪︎ American Politics, International Affairs and Economics 
 
 https://credentials.edx.org/credentials/9f2fa81951c040a487dfa79271223565/
 
