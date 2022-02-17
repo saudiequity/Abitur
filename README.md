@@ -4,7 +4,7 @@
 
 ▪︎ Born in Pakistan, Punjab Province, Chenab Nagar, 14.03.1986 
 
-▪︎ Hindu Caste: Bhatti Rajput 
+▪︎ Hindu Caste: Rajput 
 
 # Programming Languages
 
