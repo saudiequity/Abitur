@@ -2,7 +2,7 @@
 
 ▪︎ Justus Knecht Gymnasium Bruchsal 
 
-▪︎ Born in Pakistan, Punjab Region, Chenab Nagar
+▪︎ Born in Pakistan, Punjab Province, Chenab Nagar
 
 # Programming Languages
 
