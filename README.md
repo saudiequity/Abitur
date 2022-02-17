@@ -41,11 +41,17 @@
 
 # Contact Details 
 
-▪︎ Mobile Number : +491628867324 ▪︎ +4915128118401
+▪︎ Mobile Number : +491628867324 
 
-▪︎ eMail Address: I.Ahmad@vodafone.de ▪︎ babermillennium@yahoo.com 
+▪︎ Business contact: +4915128118401
 
-▪︎ Rajput Koenigreich ▪︎ Musikgenre : 50 Cent G-Unit
+▪︎ Business eMail: I.Ahmad@vodafone.de 
+
+▪︎ eMail Address: babermillennium@yahoo.com 
+
+▪︎ Rajput Koenigreich 
+
+▪︎ Musikgenre : 50 Cent G-Unit
 
 # Ideologie
 
