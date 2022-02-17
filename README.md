@@ -4,7 +4,7 @@
 
 ▪︎ Born in Pakistan, Punjab Province, Chenab Nagar, 14.03.1986 
 
-▪︎ Hindu Caste: Rajput 
+▪︎ Origin Caste: Rajput Ahmadi
 
 ▪︎ Einbuergerung im Jahre 1997
 
