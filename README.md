@@ -49,7 +49,7 @@
 
 ▪︎ eMail Address: babermillennium@yahoo.com 
 
-▪︎ Rajput Koenigreich, Private Monarchy 
+▪︎ Rajput Koenigreich, Personal Monarchy 
 
 ▪︎ Musikgenre : 50 Cent G-Unit
 
