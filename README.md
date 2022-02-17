@@ -4,6 +4,8 @@
 
 ▪︎ Born in Pakistan, Punjab Province, Chenab Nagar, 14.03.1986 
 
+▪︎ Hindu Caste: Bhatti Rajput 
+
 # Programming Languages
 
 ▪︎ Turbo Pascal, Borland Delphi Compiler
