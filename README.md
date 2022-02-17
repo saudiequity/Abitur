@@ -6,7 +6,7 @@
 
 ▪︎ Hindu Caste: Rajput 
 
-▪︎ Einbuergerung im Jahre 2001
+▪︎ Einbuergerung im Jahre 1999
 
 # Programming Languages
 
