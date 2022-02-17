@@ -2,9 +2,9 @@
 
 ▪︎ Justus Knecht Gymnasium Bruchsal 
 
-▪︎ Born in Pakistan, Punjab Province, Chenab Nagar, 14.03.1986 
+▪︎ Born in Pakistan, Punjab Province, 14.03.1986 
 
-▪︎ Origin Caste: Rajput Muslim
+▪︎ Origin Caste: Rajput 
 
 ▪︎ Einbuergerung im Jahre 1997
 
