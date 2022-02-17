@@ -2,6 +2,8 @@
 
 ▪︎ Justus Knecht Gymnasium Bruchsal 
 
+▪︎ Born in Pakistan, Punjab Region
+
 # Programming Languages
 
 ▪︎ Turbo Pascal, Borland Delphi Compiler
