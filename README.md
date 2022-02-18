@@ -4,7 +4,7 @@
 
 ▪︎ Born in Pakistan, Punjab Province, 14.03.1986 
 
-▪︎ Origin Caste: Rajput, Grandfather Maulvi Ali Ahmad
+▪︎ Origin Caste: Rajput, Grandfather Name: Maulvi Ali Ahmad
 
 ▪︎ Einbuergerung im Jahre 1997
 
