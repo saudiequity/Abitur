@@ -4,8 +4,8 @@
 
 # Harvard Kennedy School 
 
-![Twitter-Card](https://user-images.githubusercontent.com/95079463/154544399-b7d3a2eb-23ff-4449-8b58-c909e91e4a18.png)
-
+<img src="https://user-images.githubusercontent.com/95079463/154544399-b7d3a2eb-23ff-4449-8b58-c909e91e4a18.png" width=25% height=25%>
+     
 ▪︎ American Politics, International Affairs, Business and Economics 
 
 https://credentials.edx.org/credentials/9f2fa81951c040a487dfa79271223565/
