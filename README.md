@@ -18,7 +18,7 @@ https://credentials.edx.org/credentials/9f2fa81951c040a487dfa79271223565/
 
 ![ea1-tl_open_badge](https://user-images.githubusercontent.com/95079463/151658291-bc2de3cf-efd4-4f38-bf4a-dde187391570.png)
 
-<img src="https://user-images.githubusercontent.com/95079463/154730134-3e9f7481-b0ee-41e8-b6b3-b65fea153de7.png" width=50% height=50%>
+<img src="https://user-images.githubusercontent.com/95079463/154730134-3e9f7481-b0ee-41e8-b6b3-b65fea153de7.png" width=25% height=25%>
 
 
 ▪︎ IBM Computer Engineering
