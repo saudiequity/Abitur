@@ -39,7 +39,10 @@ https://credentials.edx.org/credentials/9f2fa81951c040a487dfa79271223565/
 
 ▪︎ 10 % Bank of China Deal
 
-▪︎ Swiss Equity Portfolio™️ (Industrial Companies)
+▪︎ Swiss Equity Portfolio™️ 
+
+![SwissEquityPortfolio](https://user-images.githubusercontent.com/95079463/154648978-b7cb9f93-41c0-410e-a573-6f4e52a253f8.png)
+
 
 # Residenz 
 
