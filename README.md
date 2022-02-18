@@ -2,16 +2,9 @@
 
 ▪︎ Justus Knecht Gymnasium Bruchsal 
 
-▪︎ Born in Pakistan, Punjab Province, 14.03.1986 
-
-▪︎ Origin Caste: Rajput, Grandfather Name: Maulvi Ali Ahmad
-
-▪︎ Einbuergerung im Jahre 1997
-
 # Harvard Kennedy School 
 
 ![Twitter-Card](https://user-images.githubusercontent.com/95079463/154544399-b7d3a2eb-23ff-4449-8b58-c909e91e4a18.png)
-
 
 ▪︎ American Politics, International Affairs, Business and Economics 
 
@@ -52,14 +45,15 @@ https://credentials.edx.org/credentials/9f2fa81951c040a487dfa79271223565/
 
 ▪︎ Heimat: Kuwait 
 
-
 # Contact Details 
 
 ▪︎ Business contact : +491628867324 ▪︎ I.Ahmad@vodafone.de 
 
 ▪︎ eMail Address: babermillennium@yahoo.com ▪︎ +4915735207973
 
-▪︎ Rajput Koenigreich, Personal Monarchy 
+▪︎ Origin Caste: Rajput Koenigreich, Born in Pakistan, Punjab Province, 14.03.1986, Grandfather Name: Maulvi Ali Ahmad
+
+▪︎ Einbuergerung im Jahre 1997
 
 ▪︎ Musikgenre : 50 Cent G-Unit
 
