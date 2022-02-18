@@ -36,8 +36,6 @@ https://credentials.edx.org/credentials/9f2fa81951c040a487dfa79271223565/
 
 <img src="https://user-images.githubusercontent.com/95079463/154649347-e688fa55-0d07-4cce-bc2a-8c6e3a298fa7.png">
 
-▪︎ IHK Karlsruhe 
-
 # Residenz 
 
 ▪︎ Hobbys : Mixed Martial Arts, Crossfit, Snowboarden, Forestry 
