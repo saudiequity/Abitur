@@ -29,7 +29,7 @@ https://credentials.edx.org/credentials/9f2fa81951c040a487dfa79271223565/
 
 # CFA Institute Investment Foundations
 
-<img src="https://user-images.githubusercontent.com/95079463/151157248-4fa7d6fe-7dc8-4cd3-a9e1-3263252d3028.png" width=50% height=50%>
+<img src="https://user-images.githubusercontent.com/95079463/151157248-4fa7d6fe-7dc8-4cd3-a9e1-3263252d3028.png" width=25% height=25%>
 
 ▪︎ 10 % Evergrande Real Estate Deal 
 
@@ -37,7 +37,7 @@ https://credentials.edx.org/credentials/9f2fa81951c040a487dfa79271223565/
 
 ▪︎ Swiss Equity Portfolio™️ 
 
-<img src="https://user-images.githubusercontent.com/95079463/154649347-e688fa55-0d07-4cce-bc2a-8c6e3a298fa7.png" width=50% height=50%>
+<img src="https://user-images.githubusercontent.com/95079463/154649347-e688fa55-0d07-4cce-bc2a-8c6e3a298fa7.png" width=75% height=75%>
 
 ▪︎ IHK Karlsruhe 
 
