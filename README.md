@@ -44,8 +44,6 @@ https://credentials.edx.org/credentials/9f2fa81951c040a487dfa79271223565/
 
 ▪︎ Wohnort: Waldbronn, BW, Germany
 
-▪︎ Heimat: Kuwait 
-
 # Contact Details 
 
 ▪︎ Business contact : +491628867324 ▪︎ I.Ahmad@vodafone.de 
