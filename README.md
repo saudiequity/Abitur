@@ -32,7 +32,7 @@
 
 ▪︎ Hobbys : Mixed Martial Arts, Crossfit, Snowboarden, Forestry 
 
-▪︎ Wohnort: Waldbronn, BW, Germany
+▪︎ Wohnort: Bad Wildbad, BW, Germany
 
 # Contact Details 
 
