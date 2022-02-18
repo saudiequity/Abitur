@@ -45,6 +45,8 @@ https://credentials.edx.org/credentials/9f2fa81951c040a487dfa79271223565/
 
 ▪︎ Wohnort: Waldbronn, BW, Germany
 
+▪︎ IHK Karlsruhe Teilnahme am Seminar: Gründung einer Selbstständigkeit
+
 ▪︎ Heimat: Kuwait 
 
 # Contact Details 
