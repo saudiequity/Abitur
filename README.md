@@ -38,7 +38,7 @@
 
 ▪︎ Business contact : +491628867324 ▪︎ I.Ahmad@vodafone.de 
 
-▪︎ eMail Address: babermillennium@hotmmail.com ▪︎ +4915735207973
+▪︎ eMail Address: babermillennium@hotmail.com ▪︎ +4915735207973
 
 ▪︎ Musikgenre : 50 Cent G-Unit
 
