@@ -14,9 +14,7 @@
 
 ▪︎ SIEMENS Principles of Electrical Engineering
 
-▪︎ ABB Lean Six Sigma
-
-▪︎ New York Institute of Finance 
+▪︎ ABB Lean Six Sigma 
 
 # CFA Institute Investment Foundations
 
