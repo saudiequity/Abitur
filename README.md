@@ -27,8 +27,6 @@ https://credentials.edx.org/credentials/9f2fa81951c040a487dfa79271223565/
 
 ▪︎ ABB Lean Six Sigma
 
-▪︎ Oracle Cloud Platform Enterprise Analytics
-
 # CFA Institute Investment Foundations
 
 ![wm1isosw_1640174148](https://user-images.githubusercontent.com/95079463/151157248-4fa7d6fe-7dc8-4cd3-a9e1-3263252d3028.png)
