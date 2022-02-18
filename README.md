@@ -18,11 +18,14 @@ https://credentials.edx.org/credentials/9f2fa81951c040a487dfa79271223565/
 
 ![ea1-tl_open_badge](https://user-images.githubusercontent.com/95079463/151658291-bc2de3cf-efd4-4f38-bf4a-dde187391570.png)
 
+
 ▪︎ IBM Computer Engineering
 
 ▪︎ SIEMENS Principles of Electrical Engineering
 
 ▪︎ ABB Lean Six Sigma
+
+▪︎ Oracle Cloud Infrastructure Foundations
 
 # CFA Institute Investment Foundations
 
