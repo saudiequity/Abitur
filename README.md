@@ -1,6 +1,6 @@
-# Justus Knecht Gymnasium Bruchsal 
+# Abitur
 
-▪︎ Abitur
+▪︎ Justus-Knecht Gymnasium Bruchsal
 
 # Programming Languages
 
