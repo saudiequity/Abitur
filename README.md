@@ -12,13 +12,11 @@
 
 ▪︎ Hanken School of Economics 
 
-▪︎ Grenoble Ecole de Management
-
 ▪︎ IBM Computer Engineering
 
 ▪︎ SIEMENS Principles of Electrical Engineering 
 
-▪︎ ABB Lean Six Sigma
+▪︎ ABB Lean Six Sigma White Belt
 
 # Heriot Watt University Dubai
 
