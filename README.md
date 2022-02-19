@@ -28,10 +28,6 @@
 
 <img src="https://user-images.githubusercontent.com/95079463/151157248-4fa7d6fe-7dc8-4cd3-a9e1-3263252d3028.png">
 
-▪︎ 10 % Evergrande Real Estate Deal 
-
-▪︎ 10 % Bank of China Deal
-
 ▪︎ Swiss Equity Portfolio™️ 
 
 <img src="https://user-images.githubusercontent.com/95079463/154649347-e688fa55-0d07-4cce-bc2a-8c6e3a298fa7.png">
