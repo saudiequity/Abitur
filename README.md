@@ -24,6 +24,8 @@
 
 # CFA Institute Investment Foundations
 
+▪︎ 10 % Deal on (Bank of China & Evergrande Real Estate) on Cayman Islands 
+
 <img src="https://user-images.githubusercontent.com/95079463/151157248-4fa7d6fe-7dc8-4cd3-a9e1-3263252d3028.png">
 
 ▪︎ Swiss Equity Portfolio™️ 
