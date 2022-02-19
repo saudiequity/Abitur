@@ -16,6 +16,8 @@
 
 ▪︎ IBM Computer Engineering
 
+▪︎ SIEMENS Principles of Electrical Engineering 
+
 # Heriot Watt University Dubai
 
 ▪︎ Real Estate Investment and Finance
