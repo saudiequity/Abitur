@@ -20,7 +20,7 @@
 
 # Heriot Watt University Dubai
 
-▪︎ Real Estate Investment and Finance
+▪︎ Real Estate Investment and Finance, Phd. Thesis IT Challenges in Mergers and Acquisitions
 
 # CFA Institute Investment Foundations
 
