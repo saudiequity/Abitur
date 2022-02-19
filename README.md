@@ -16,9 +16,7 @@
 
 ▪︎ IBM Computer Engineering
 
-▪︎ SIEMENS Principles of Electrical Engineering
-
-▪︎ ABB Lean Six Sigma White Belt 
+▪︎ SIEMENS Principles of Electrical Engineeri
 
 # Heriot Watt University Dubai
 
