@@ -18,6 +18,8 @@
 
 ▪︎ SIEMENS Principles of Electrical Engineering
 
+▪︎ ABB Lean Six Sigma White Belt 
+
 # Heriot Watt University Dubai
 
 ▪︎ Real Estate Investment and Finance
