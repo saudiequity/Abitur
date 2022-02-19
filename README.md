@@ -14,9 +14,7 @@
 
 ▪︎ Grenoble Ecole de Management
 
-▪︎ IBM Computer Engineering
-
-▪︎ SIEMENS Principles of Electrical Engineeri
+▪︎ IBM Computer Engineeri
 
 # Heriot Watt University Dubai
 
