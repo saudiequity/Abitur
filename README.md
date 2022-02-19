@@ -14,7 +14,7 @@
 
 ▪︎ Grenoble Ecole de Management
 
-▪︎ IBM Computer Engineeri
+▪︎ IBM Computer Engineering
 
 # Heriot Watt University Dubai
 
