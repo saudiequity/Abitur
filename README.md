@@ -12,8 +12,6 @@
 
 ▪︎ Hanken School of Economics 
 
-▪︎ Unternehmensgruendung
-
 ▪︎ SIEMENS Principles of Electrical Engineering 
 
 ▪︎ ABB Lean Six Sigma 
