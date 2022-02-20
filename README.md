@@ -12,9 +12,7 @@
 
 ▪︎ Hanken School of Economics 
 
-▪︎ SIEMENS Principles of Electrical Engineering 
-
-▪︎ ABB Lean Six Sigma 
+▪︎ ABB 
 
 ▪︎ Data Engineering and Data Science from TU Berlin
 
