@@ -16,6 +16,8 @@
 
 ▪︎ ABB Lean Six Sigma 
 
+▪︎ Data Engineering and Data Science from TU Berlin
+
 # Heriot Watt University Dubai
 
 ▪︎ Real Estate Investment and Finance, Dissertation about "IT Challenges in Mergers and Acquisitions"
