@@ -12,7 +12,7 @@
 
 ▪︎ Hanken School of Economics 
 
-▪︎ IBM Computer Engineering
+▪︎ Unternehmensgruendung
 
 ▪︎ SIEMENS Principles of Electrical Engineering 
 
