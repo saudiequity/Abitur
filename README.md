@@ -12,7 +12,7 @@
 
 ▪︎ Hanken School of Economics 
 
-▪︎ ABB 
+▪︎ ABB Engineering
 
 ▪︎ Data Engineering and Data Science from TU Berlin
 
