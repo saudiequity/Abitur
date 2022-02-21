@@ -22,7 +22,7 @@
 
 # CFA Institute Investment Foundations
 
-▪︎ TU Berlin 
+▪︎ TU Berlin Data Engineering
 
 <img src="https://user-images.githubusercontent.com/95079463/151157248-4fa7d6fe-7dc8-4cd3-a9e1-3263252d3028.png">
 
