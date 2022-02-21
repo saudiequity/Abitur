@@ -36,7 +36,7 @@
 
 # Contact Details 
 
-▪︎ Business contact : +491628867324 ▪︎ I.Ahmad@vodafone.de 
+▪︎ Business contact : +491628867324 ▪︎ i.ahmad@vodafone.de 
 
 ▪︎ eMail Address: babermillennium@hotmail.com ▪︎ +4915735207973
 
