@@ -16,7 +16,7 @@
 
 # Heriot Watt University Dubai
 
-▪︎ Hanken School of Economics 
+▪︎ Hanken School of Economics Financial Engineering
 
 ▪︎ Real Estate Investment and Finance, Dissertation about "IT Challenges in Mergers and Acquisitions"
 
