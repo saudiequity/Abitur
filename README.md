@@ -12,9 +12,7 @@
 
 ▪︎ Hanken School of Economics 
 
-▪︎ ABB Engineering
-
-▪︎ Data Engineering and Data Science from TU Berlin
+▪︎ ABB Academy
 
 # Heriot Watt University Dubai
 
