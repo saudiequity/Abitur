@@ -18,15 +18,19 @@
 
 ▪︎ Real Estate Investment and Finance 
 
-# TU Berlin Data Engineering
+# TU Berlin 
+
+▪︎ Data Engineering
 
 ▪︎ Dissertation about "IT Challenges in Mergers and Acquisitions"
 
-▪︎ CFA Institute Investment Foundations Privat Banking
+▪︎ CFA Institute Investment Foundations 
+
+▪︎ Private Banking
 
 <img src="https://user-images.githubusercontent.com/95079463/151157248-4fa7d6fe-7dc8-4cd3-a9e1-3263252d3028.png">
 
-▪︎ 10 % Private Banquier Deal with BankofChina Stake
+▪︎ 10 % Private Banquier Deal with BankofChina stake
 
 ▪︎ Swiss Equity Portfolio™️ 
 
