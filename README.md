@@ -18,11 +18,11 @@
 
 ▪︎ Hanken School of Economics 
 
-▪︎ Real Estate Investment and Finance, Dissertation about "IT Challenges in Mergers and Acquisitions"
+▪︎ Real Estate Investment and Finance 
 
 # CFA Institute Investment Foundations
 
-▪︎ TU Berlin Data Engineering
+▪︎ TU Berlin Data Engineering ▪︎ Dissertation about "IT Challenges in Mergers and Acquisitions"
 
 <img src="https://user-images.githubusercontent.com/95079463/151157248-4fa7d6fe-7dc8-4cd3-a9e1-3263252d3028.png">
 
