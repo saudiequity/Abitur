@@ -54,7 +54,7 @@
 
 # Ideologie
 
-▪︎ Religion: Dubai DIFC Grand Mosque
+▪︎ Religion: DIFC Grand Mosque
 
 ▪︎ Dubia Internationale Financial Centre
 
