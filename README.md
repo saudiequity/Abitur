@@ -56,5 +56,5 @@
 
 ▪︎ Religion: Dubai DIFC Grand Mosque
 
-▪︎ Financial Hub: Dubia Internationale Financial Centre
+▪︎ Dubia Internationale Financial Centre
 
