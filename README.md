@@ -14,6 +14,8 @@
 
 # Hanken School of Economics 
 
+▪︎ Real Estate Investments
+
 # TU Berlin
 
 ▪︎ Data Engineering
