@@ -10,7 +10,7 @@
 
 ![ea1-tl_open_badge](https://user-images.githubusercontent.com/95079463/151658291-bc2de3cf-efd4-4f38-bf4a-dde187391570.png)
 
-▪︎ Business Engineering 
+▪︎ Design Thinking 
 
 ▪︎ ABB Electrification Academy
 
@@ -20,13 +20,9 @@
 
 ▪︎ Real Estate Investment and Finance 
 
-# TU Berlin 
-
-▪︎ Data Engineering
+# CFA Institute Investment Foundations 
 
 ▪︎ Dissertation about "IT Challenges in Mergers and Acquisitions"
-
-▪︎ CFA Institute Investment Foundations 
 
 ▪︎ Private Banking
 
