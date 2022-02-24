@@ -20,7 +20,7 @@
 
 ▪︎ Real Estate Investment and Finance 
 
-▪︎ Doctoral Thesis about "IT Challenges in Mergers and Acquisitions"
+▪︎ Phd Thesis about "IT Challenges in Mergers and Acquisitions"
 
 # CFA Institute Investment Foundations 
 
