@@ -10,15 +10,13 @@
 
 ![ea1-tl_open_badge](https://user-images.githubusercontent.com/95079463/151658291-bc2de3cf-efd4-4f38-bf4a-dde187391570.png)
 
-▪︎ Design Thinking 
+▪︎ ABB
 
-▪︎ ABB Academy
+# Hanken School of Economics 
 
-# Heriot Watt University Dubai
+# TU Berlin
 
-▪︎ Hanken School of Economics 
-
-▪︎ Real Estate Investment and Finance 
+▪︎ Data Engineering
 
 ▪︎ Phd Thesis about "IT Challenges in Mergers and Acquisitions"
 
