@@ -12,7 +12,9 @@
 
 ▪︎ ABB
 
-# Hanken School of Economics 
+# Heriot Watt University Dubai 
+
+▪︎ Hanken School of Economics 
 
 ▪︎ Real Estate Investments
 
