@@ -48,9 +48,9 @@
 
 ▪︎ Musikgenre : 50 Cent G-Unit
 
-# Ideologie
 
-▪︎ Religion: DIFC Grand Mosque
 
-▪︎ Dubia Internationale Financial Centre
+
+
+
 
