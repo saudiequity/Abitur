@@ -12,7 +12,7 @@
 
 ▪︎ Design Thinking 
 
-▪︎ ABB Electrification Academy
+▪︎ ABB Academy
 
 # Heriot Watt University Dubai
 
