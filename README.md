@@ -20,9 +20,9 @@
 
 ▪︎ Real Estate Investment and Finance 
 
-# CFA Institute Investment Foundations 
+▪︎ Doctoral Thesis about "IT Challenges in Mergers and Acquisitions"
 
-▪︎ Dissertation about "IT Challenges in Mergers and Acquisitions"
+# CFA Institute Investment Foundations 
 
 ▪︎ Private Banking
 
