@@ -4,7 +4,7 @@
 
 # Programming Languages 
 
-▪︎ Turbo Pascal,  Embarcadero Delphi 
+▪︎Embarcadero Delphi 
 
 # St. Gallen HSG 
 
