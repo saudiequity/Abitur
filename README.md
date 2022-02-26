@@ -20,10 +20,6 @@
 
 ▪︎ Phd Thesis about "IT Challenges in Mergers and Acquisitions"
 
-# University of California Irvine 
-
-▪︎ Search Engine 
-
 # CFA Institute Investment Foundations 
 
 ▪︎ Private Banking
