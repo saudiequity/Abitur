@@ -8,6 +8,8 @@
 
 ▪︎ ABB
 
+▪︎ Design Thinking
+
 # Heriot Watt University Dubai 
 
 ▪︎ Hanken School of Economics 
