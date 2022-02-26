@@ -4,8 +4,6 @@
 
 # Programming Languages 
 
-▪︎Embarcadero Delphi
-
 ▪︎ IBM COBOL 
 
 # St. Gallen HSG 
