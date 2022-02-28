@@ -30,6 +30,8 @@
 
 ▪︎ 10 % Glencore Deal
 
+▪︎ 10 % Credit Suisse Deal 
+
 ▪︎ Swiss Equity Portfolio™️ 
 
 ![SwissEquityPortfolio](https://user-images.githubusercontent.com/95079463/155975695-08a814a8-f54d-4795-b676-99df8b991601.png)
