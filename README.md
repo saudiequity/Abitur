@@ -32,7 +32,7 @@
 
 ▪︎ Swiss Equity Portfolio™️ 
 
-![SwissEquityPortfolio](https://user-images.githubusercontent.com/95079463/155350617-cbfe23a1-43df-41ac-b437-d8d6844f2a98.png)
+![SwissEquityPortfolio](https://user-images.githubusercontent.com/95079463/155975695-08a814a8-f54d-4795-b676-99df8b991601.png)
 
 # Residenz 
 
