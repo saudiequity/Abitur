@@ -32,6 +32,10 @@
 
 ▪︎ 10 % Credit Suisse Deal 
 
+▪︎ 10 % Bank of China Deal 
+
+▪︎ 10 % iShares Deal 
+
 ▪︎ Swiss Equity Portfolio™️ 
 
 ![SwissEquityPortfolio](https://user-images.githubusercontent.com/95079463/155975695-08a814a8-f54d-4795-b676-99df8b991601.png)
