@@ -12,8 +12,6 @@
 
 ▪︎ ABB
 
-▪︎ Design Thinking
-
 # Heriot Watt University Dubai
 
 ▪︎ Real Estate Investments
