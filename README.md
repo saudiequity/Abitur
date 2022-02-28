@@ -16,8 +16,6 @@
 
 # Heriot Watt University Dubai
 
-▪︎ Hanken School of Economics 
-
 ▪︎ Real Estate Investments
 
 # TU Berlin
