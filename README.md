@@ -32,8 +32,6 @@
 
 ▪︎ 10 % Credit Suisse Deal 
 
-▪︎ 10 % Bank of China Deal 
-
 ▪︎ 10 % iShares Deal 
 
 ▪︎ Swiss Equity Portfolio™️ 
