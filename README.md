@@ -12,8 +12,6 @@
 
 ▪︎ Hanken School of Economics 
 
-▪︎ Grenoble Ecole De Management 
-
 # TU Berlin
 
 ▪︎ Data Engineering
