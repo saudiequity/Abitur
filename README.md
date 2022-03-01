@@ -32,9 +32,7 @@
 
 ▪︎ 10 % Glencore Deal
 
-▪︎ 10 % Credit Suisse Deal 
-
-▪︎ 10 % iShares Deal 
+▪︎ 10 % Daimler Truck AG Deal
 
 ▪︎ Swiss Equity Portfolio™️ 
 
