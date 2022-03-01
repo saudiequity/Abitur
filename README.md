@@ -10,13 +10,11 @@
 
 ![ea1-tl_open_badge](https://user-images.githubusercontent.com/95079463/151658291-bc2de3cf-efd4-4f38-bf4a-dde187391570.png)
 
-▪︎ Grenoble Ecole De Management
-
-▪︎ ABB
-
 # Heriot Watt University Dubai
 
-▪︎ Real Estate Investments
+▪︎ Hanken School of Economics 
+
+▪︎ Grenoble Ecole De Management 
 
 # TU Berlin
 
@@ -24,9 +22,9 @@
 
 ▪︎ Phd Thesis about "IT Challenges in Mergers and Acquisitions"
 
-# CFA Institute Investment Foundations 
+#  CFA Institute Investment Foundations 
 
-▪︎ Private Banking
+▪︎ ABB Academy 
 
 <img src="https://user-images.githubusercontent.com/95079463/151157248-4fa7d6fe-7dc8-4cd3-a9e1-3263252d3028.png">
 
