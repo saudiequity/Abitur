@@ -28,6 +28,8 @@
 
 ▪︎ 10 % Glencore Deal
 
+▪︎ 10 % Daimler Truck AG Deal 
+
 ▪︎ 10 % Kingdom Holding Company Deal 
 
 ▪︎ Swiss Equity Portfolio™️ 
