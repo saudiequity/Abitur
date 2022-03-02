@@ -36,7 +36,7 @@
 
 # Residenz 
 
-▪︎ Hobbys : Mixed Martial Arts, Crossfit, Snowboarden, Forestry, Modern Standard Arabic, American Football 
+▪︎ Hobbys : Mixed Martial Arts, Laufen, Snowboarden, Forestry, Modern Standard Arabic 
 
 ▪︎ Wohnort: Bad Wildbad, BW, Germany
 
