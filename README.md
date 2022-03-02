@@ -30,7 +30,7 @@
 
 ▪︎ 10 % Daimler Truck AG Deal 
 
-▪︎ 10 % Kingdom Holding Company Deal 
+▪︎ 10 % Credit Suisse Deal 
 
 ▪︎ Swiss Equity Portfolio™️ 
 
