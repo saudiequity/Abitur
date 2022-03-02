@@ -28,7 +28,7 @@
 
 ▪︎ 10 % Glencore Deal
 
-▪︎ 10 % Daimler Truck AG Deal 
+▪︎ 10 % Daimler Truck Deal 
 
 ▪︎ 10 % Credit Suisse Deal 
 
