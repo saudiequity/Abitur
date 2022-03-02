@@ -12,7 +12,7 @@
 
 #  Hanken School of Economics 
 
-▪︎ Real Estate Investments and Finance 
+▪︎ Real Estate Investments and Finance  (Heriot Watt University Dubai)
 
 # TU Berlin
 
