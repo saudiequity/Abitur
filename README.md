@@ -38,7 +38,7 @@
 
 ▪︎ Wohnort: Bad Wildbad, BW, Germany
 
-▪︎ Heimat: Jersey Island
+▪︎ Heimat: Jersey Island, UK, France
 
 # Contact Details 
 
