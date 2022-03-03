@@ -16,7 +16,7 @@
 
 # TU Berlin
 
-▪︎ Data Engineering
+▪︎ Data Engineering (AMD Ryzen 5, 32 GB RAM)
 
 ▪︎ Phd Thesis about "IT Challenges in Mergers and Acquisitions"
 
