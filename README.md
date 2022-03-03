@@ -38,6 +38,8 @@
 
 ▪︎ Wohnort: Bad Wildbad, BW, Germany
 
+▪︎ Heimat: Jersey Island
+
 # Contact Details 
 
 ▪︎ Business contact : +491628867324 ▪︎ i.ahmad@vodafone.de 
