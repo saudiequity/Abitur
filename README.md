@@ -40,7 +40,9 @@
 
 ▪︎ Wohnort: Bad Wildbad, BW, Germany
 
-▪︎ Heimat: Jersey Island, UK, France ( Rajput Koenigreich, Born in Punjab, Pakistan, 1986 )
+▪︎ Heimat: Jersey Island, UK, France ( Rajput Koenigreich )
+
+▪︎ Born in Punjab, Pakistan, 1986  ( Einbuergerung im Jahr 1997 )
 
 # Contact Details 
 
