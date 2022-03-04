@@ -42,7 +42,7 @@
 
 ▪︎ Heimat: Jersey Island, UK, France ( Rajput Koenigreich )
 
-▪︎ Born in Punjab, Pakistan, 1986  ( Einbuergerung im Jahr 1997 )
+▪︎ Born in Punjab, Pakistan, 1986  ( Einbuergerung 1997 )
 
 # Contact Details 
 
