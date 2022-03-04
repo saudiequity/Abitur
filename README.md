@@ -42,7 +42,7 @@
 
 ▪︎ Heimat: Jersey Island, UK, France ( Rajput Koenigreich )
 
-▪︎ Born in Punjab, Pakistan, 1986  ( Schweizer Staatsbürgerschaft )
+▪︎ Born in Punjab, Pakistan, 1986  ( Schweizer Staatsbuergerschaft )
 
 # Contact Details 
 
