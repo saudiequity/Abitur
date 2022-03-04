@@ -32,6 +32,8 @@
 
 ▪︎ SIEMENS Electrical Engineering
 
+▪︎ ABB Electricity
+
 # Residenz 
 
 ▪︎ Hobbys : Mixed Martial Arts, Laufen, Snowboarden, Forestry, Modern Standard Arabic 
