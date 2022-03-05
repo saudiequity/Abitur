@@ -10,6 +10,7 @@
 
 ![ea1-tl_open_badge](https://user-images.githubusercontent.com/95079463/151658291-bc2de3cf-efd4-4f38-bf4a-dde187391570.png)
 
+▪︎ Algorithms ( University of Delaware)
 #  Hanken School of Economics 
 
 ▪︎ Real Estate Investments and Finance  (Heriot Watt University Dubai)
