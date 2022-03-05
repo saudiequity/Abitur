@@ -14,10 +14,6 @@
 
 ▪︎ Real Estate Investments and Finance  (Heriot Watt University Dubai)
 
-# TU Berlin
-
-▪︎ Data Engineering (AMD Ryzen 5, 32 GB RAM)
-
 ▪︎ Phd Thesis about "IT Challenges in Mergers and Acquisitions"
 
 #  CFA Institute Investment Foundations 
