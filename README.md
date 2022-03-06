@@ -52,6 +52,8 @@
 
 ▪︎ Body Height: 1.78 m ▪︎ Body weight: ca. 105 kg
 
+▪︎ Musikgenre: Deep House Techno, 50 Cent G-Unit 
+
 ![timkaun_mbb_credit_card_1500px_08](https://user-images.githubusercontent.com/95079463/155937176-0a48cc47-b1d0-4d14-a3de-1cacb4abf6e6.jpg)
 
 
