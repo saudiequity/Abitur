@@ -40,7 +40,7 @@
 
 ▪︎ Hobbys : Mixed Martial Arts, Laufen, Snowboarden, Forestry, Modern Standard Arabic, Streetball 
 
-▪︎ Wohnort: Bad Wildbad, BW, Germany
+▪︎ Wohnort: London, UK 
 
 ▪︎ Heimat: Jersey Island, UK, France ( Rajput Koenigreich )
 
