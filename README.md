@@ -44,6 +44,8 @@
 
 ▪︎ Born in Asia, 1986  ( Schweizer Staatsbuergerschaft )
 
+▪︎ Zivildienst Schule in Bodelshausen,  Tuebingen
+
 # Contact Details 
 
 ▪︎ Business contact : +491628867324 ▪︎ i.ahmad@vodafone.de 
