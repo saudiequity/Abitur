@@ -44,7 +44,7 @@
 
 ▪︎ Born in Asia, 1986  ( Schweizer Staatsbuergerschaft )
 
-▪︎ Zivildienst Schule in Bodelshausen,  Tuebingen
+▪︎ Zivildienst Schule in Bodelshausen,  Tuebingen, 2006
 
 # Contact Details 
 
