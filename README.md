@@ -16,9 +16,7 @@
 
 #  Hanken School of Economics 
 
-▪︎ Real Estate Investments and Finance
-
-# Heriot Watt University Dubai 
+▪︎ Real Estate Investments and Finance (Heriot Watt University Dubai)
 
 ▪︎ Phd Thesis about "IT Challenges in Mergers and Acquisitions"
 
@@ -50,9 +48,7 @@
 
 ▪︎ Born in Asia, 1986  ( Schweizer Staatsbuergerschaft )
 
-▪︎ Zivildienst Schule in Bodelshausen,  Tuebingen, 2006
-
-▪︎ Gegen Arische Hakenkreuz Tussen
+▪︎ Zivildienst Schule in Bodelshausen,  Tuebingen, 2006 (gegen Arische Weiber)
 
 # Contact Details 
 
