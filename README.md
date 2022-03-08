@@ -48,7 +48,7 @@
 
 ▪︎ Wohnort: London, UK 
 
-▪︎ Heimat: Jersey Island, UK, France ( Rajput Koenigreich )
+▪︎ Heimat: Jersey Island, UK ( Rajput Koenigreich )
 
 ▪︎ Born in Asia, 1986  ( Schweizer Staatsbuergerschaft )
 
