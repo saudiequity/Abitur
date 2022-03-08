@@ -16,7 +16,13 @@
 
 #  Hanken School of Economics 
 
-▪︎ Real Estate Investments and Finance  (Heriot Watt University Dubai)
+▪︎ Real Estate Investments and Finance
+
+#  Kings College London 
+
+▪︎ Business Management 
+
+# Copenhagen Business School
 
 ▪︎ Phd Thesis about "IT Challenges in Mergers and Acquisitions"
 
