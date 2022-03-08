@@ -48,7 +48,7 @@
 
 ▪︎ Born in Asia, 1986  ( Schweizer Staatsbuergerschaft )
 
-▪︎ Zivildienst Schule in Bodelshausen,  Tuebingen, 2006 (gegen arische blonde Frauen)
+▪︎ Zivildienst Schule in Bodelshausen,  Tuebingen, 2006 (gegen Hakenkreuz)
 
 # Contact Details 
 
