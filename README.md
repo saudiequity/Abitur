@@ -24,9 +24,9 @@
 
 <img src="https://user-images.githubusercontent.com/95079463/151157248-4fa7d6fe-7dc8-4cd3-a9e1-3263252d3028.png">
 
-▪︎ 10 % Credit Suisse Hongkong Deal (Glencore)
+▪︎ 10 % Credit Suisse Hongkong Deal 
 
-▪︎ Swiss Equity Portfolio™️ (Commodities)
+▪︎ Swiss Equity Portfolio™️
 
 ▪︎ Swiss Business contact: babermillennium@yahoo.com
 
@@ -48,7 +48,7 @@
 
 ▪︎ Born in Asia, 1986  ( Schweizer Staatsbuergerschaft )
 
-▪︎ Zivildienst Schule in Bodelshausen,  Tuebingen, 2006 (Gegen Davidstern)
+▪︎ Zivildienst Schule in Bodelshausen,  Tuebingen, 2006 
 
 # Contact Details 
 
