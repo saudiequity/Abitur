@@ -22,7 +22,7 @@
 
 ▪︎ Business Management 
 
-# Copenhagen Business School
+# Heriot Watt University Dubai 
 
 ▪︎ Phd Thesis about "IT Challenges in Mergers and Acquisitions"
 
@@ -41,6 +41,8 @@
 ▪︎ SIEMENS Electrical Engineering
 
 ▪︎ ABB Electricity
+
+▪︎ IBM Power Computing 
 
 # Residenz 
 
