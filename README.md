@@ -18,10 +18,6 @@
 
 ▪︎ Real Estate Investments and Finance
 
-#  Kings College London 
-
-▪︎ Business Management 
-
 # Heriot Watt University Dubai 
 
 ▪︎ Phd Thesis about "IT Challenges in Mergers and Acquisitions"
