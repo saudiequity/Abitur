@@ -20,6 +20,10 @@
 
 ▪︎ American Politics 
 
+# New York Institute of Finance
+
+▪︎ M&A Concepts
+
 # Heriot Watt University Dubai 
 
 ▪︎ DBA Thesis about "IT Challenges in Mergers and Acquisitions"
