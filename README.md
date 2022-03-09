@@ -14,9 +14,9 @@
 
 ▪︎ Parallel Computing 
 
-#  Hanken School of Economics 
+#  Heriot Watt University Dubai 
 
-▪︎ Real Estate Investments and Finance (Heriot Watt University Dubai)
+▪︎ Real Estate Investments and Finance 
 
 ▪︎ Phd Thesis about "IT Challenges in Mergers and Acquisitions"
 
