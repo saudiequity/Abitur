@@ -34,8 +34,6 @@
 
 ![SwissEquityPortfolio](https://user-images.githubusercontent.com/95079463/156522393-272bb017-e660-4022-a998-33063f54dfd0.png)
 
-▪︎ SIEMENS Electrical Engineering
-
 ▪︎ ABB Electricity
 
 ▪︎ IBM Power Computing (Universitaet Tuebingen)
