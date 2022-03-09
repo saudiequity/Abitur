@@ -36,8 +36,6 @@
 
 ▪︎ ABB Electricity
 
-▪︎ IBM Power Computing (Universitaet Tuebingen)
-
 ▪︎ Parallel Computing (Technische Hochschule Blekinge) 
 
 # Residenz 
