@@ -44,7 +44,7 @@
 
 # Residenz 
 
-▪︎ Hobbys : Mixed Martial Arts, Laufen, Snowboarden, Forestry, Modern Standard Arabic, Streetball 
+▪︎ Hobbys : Mixed Martial Arts, Laufen, Snowboarden, Forestry, Modern Standard Arabic, Streetball, Rugby
 
 ▪︎ Heimat: Jersey Island, UK ( Rajput Koenigreich )
 
