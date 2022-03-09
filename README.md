@@ -40,8 +40,6 @@
 
 ▪︎ Hobbys : Mixed Martial Arts, Laufen, Snowboarden, Forestry, Modern Standard Arabic, Streetball 
 
-▪︎ Wohnort: London, UK 
-
 ▪︎ Heimat: Jersey Island, UK ( Rajput Koenigreich )
 
 ▪︎ Born in Asia, 1986  ( Schweizer Staatsbuergerschaft )
