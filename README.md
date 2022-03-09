@@ -22,8 +22,6 @@
 
 # Heriot Watt University Dubai 
 
-▪︎ Parallel Computing (Technische Hochschule Blekinge)
-
 ▪︎ DBA Thesis about "IT Challenges in Mergers and Acquisitions"
 
 #  CFA Institute Investment Foundations 
@@ -41,6 +39,8 @@
 ▪︎ ABB Electricity
 
 ▪︎ IBM Power Computing (Universitaet Tuebingen)
+
+▪︎ Parallel Computing (Technische Hochschule Blekinge) 
 
 # Residenz 
 
