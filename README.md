@@ -46,7 +46,7 @@
 
 ▪︎ Heimat: Jersey Island, UK ( Rajput Koenigreich )
 
-▪︎ Born in Asia, 1986  ( Britische Staatsbuergerschaft )
+▪︎ Born in South Asia, 1986  ( Britische Staatsbuergerschaft )
 
 ▪︎ Zivildienst Schule in Bodelshausen,  Tuebingen, 2006 
 
