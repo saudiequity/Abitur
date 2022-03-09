@@ -56,7 +56,7 @@
 
 ▪︎ Body Height: 1.78 m ▪︎ Body weight: ca. 105 kg
 
-▪︎ Musikgenre: Deep House Techno, 50 Cent G-Unit 
+▪︎ Musikgenre: Busta Rhymes, 50 Cent G-Unit 
 
 
 
