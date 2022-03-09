@@ -40,8 +40,6 @@
 
 ▪︎ ABB Electricity
 
-▪︎ Parallel Computing (Technische Hochschule Blekinge) 
-
 # Residenz 
 
 ▪︎ Hobbys : Mixed Martial Arts, Laufen, Snowboarden, Forestry, Modern Standard Arabic, Streetball 
