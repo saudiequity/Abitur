@@ -14,10 +14,6 @@
 
 ▪︎ Parallel Computing 
 
-#  Heriot Watt University Dubai 
-
-▪︎ Real Estate Investments and Finance 
-
 ▪︎ Phd Thesis about "IT Challenges in Mergers and Acquisitions"
 
 #  CFA Institute Investment Foundations 
