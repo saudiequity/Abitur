@@ -48,7 +48,7 @@
 
 ▪︎ Born in South Asia, 1986  ( Britische Staatsbuergerschaft )
 
-▪︎ Zivildienst Schule in Bodelshausen,  Tuebingen, 2006 
+▪︎ Zivildienst Schule in Bodelshausen,  Tuebingen, 2006 (Gegen Alemannin)
 
 # Contact Details 
 
