@@ -14,7 +14,7 @@
 
 ▪︎ Parallel Computing (Technische Hochschule Blekinge)
 
-▪︎ Object-oriented Java 
+▪︎ Object-Oriented Java (Hochschule Berlin)
 
 # Hanken School of Economics
 
