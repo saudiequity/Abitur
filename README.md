@@ -14,6 +14,8 @@
 
 ▪︎ Parallel Computing (Technische Hochschule Blekinge)
 
+▪︎ Object-oriented Java 
+
 # Hanken School of Economics
 
 ▪︎ Concepts of Finance
