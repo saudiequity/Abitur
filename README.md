@@ -32,6 +32,8 @@
 
 # Heriot Watt University Dubai 
 
+▪︎ Dubai Businessman 
+
 ▪︎ DBA Thesis about "IT Challenges in Mergers and Acquisitions"
 
 #  CFA Institute Investment Foundations 
