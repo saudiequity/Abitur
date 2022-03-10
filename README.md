@@ -16,8 +16,6 @@
 
 ▪︎ Parallel Computing (Technische Hochschule Blekinge)
 
-▪︎ Object-Oriented Java (Beuth Hochschule Berlin)
-
 # Harvard University 
 
 ▪︎ American Politics (Harvard Kennedy School)
