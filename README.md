@@ -18,9 +18,11 @@
 
 ▪︎ Concepts of Finance
 
-# Harvard Kennedy School
+# Harvard Kennedy School (Harvard T.H. Chan School of Public Health)
 
 ▪︎ American Politics 
+
+▪︎ Data Science
 
 # New York Institute of Finance
 
