@@ -14,11 +14,11 @@
 
 ▪︎ Object-Oriented Java (Beuth Hochschule Berlin)
 
-# Harvard Kennedy School (Harvard T.H. Chan School of Public Health)
+# Harvard University 
 
-▪︎ American Politics 
+▪︎ American Politics (Harvard Kennedy School)
 
-▪︎ Data Science
+▪︎ Data Science (Harvard T.H Chan School of Public Health)
 
 # Heriot Watt University Dubai 
 
