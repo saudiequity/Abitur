@@ -24,7 +24,7 @@
 
 ▪︎ Concepts of Finance (Hanken School of Economics)
 
-▪︎ DBA (Mergers and Acquistitions) from New York Institute of Finance
+▪︎ DBA in Mergers and Acquistitions (New York Institute of Finance)
 
 #  CFA Institute Investment Foundations 
 
