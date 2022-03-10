@@ -14,10 +14,6 @@
 
 ▪︎ Object-Oriented Java (Beuth Hochschule Berlin)
 
-# Hanken School of Economics
-
-▪︎ Concepts of Finance
-
 # Harvard Kennedy School (Harvard T.H. Chan School of Public Health)
 
 ▪︎ American Politics 
@@ -25,6 +21,8 @@
 ▪︎ Data Science
 
 # Heriot Watt University Dubai 
+
+▪︎ Concepts of Finance (Hanken School of Economics)
 
 ▪︎ DBA Thesis about "IT Challenges in Mergers and Acquisitions" (Dubai Businessman)
 
