@@ -24,7 +24,7 @@
 
 ▪︎ Concepts of Finance (Hanken School of Economics)
 
-▪︎ DBA Thesis about "IT Challenges in Mergers and Acquisitions" (Copenhagen Business School)
+▪︎ DBA (Mergers and Acquistitions) from New York Institute of Finance
 
 #  CFA Institute Investment Foundations 
 
