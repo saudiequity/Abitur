@@ -8,7 +8,7 @@
 
 # Universitaet Heidelberg 
 
-▪︎ Computer Engineering 
+▪︎ Computational Engineering 
 
 # St. Gallen HSG 
 
