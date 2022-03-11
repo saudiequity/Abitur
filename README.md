@@ -32,7 +32,7 @@
 
 ▪︎ Born in South Asia, 1986  ( Britische Staatsbuergerschaft )
 
-▪︎ Zivildienst Schule in Bodelshausen,  Tuebingen, 2006 (Keine Freundschaft mit Alemanninnen)
+▪︎ Zivildienst Schule in Bodelshausen,  Tuebingen, 2006 
 
 # Contact Details 
 
