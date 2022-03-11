@@ -16,7 +16,7 @@
 
 <img src="https://user-images.githubusercontent.com/95079463/151157248-4fa7d6fe-7dc8-4cd3-a9e1-3263252d3028.png">
 
-▪︎ 10 % Citibank Deal (Privatbankier)
+▪︎ 10 % Credit Suisse Deal (Privatbankier)
 
 ▪︎ Swiss Equity Portfolio™️
 
@@ -28,11 +28,10 @@
 
 ▪︎ Hobbys : Mixed Martial Arts, Laufen, Snowboarden, Forestry, Modern Standard Arabic, Streetball, Rugby
 
-▪︎ Heimat: Jersey Island, UK ( Rajput Koenigreich )
+▪︎ Heimat: Dubai, UAE ( Rajput Koenigreich )
 
-▪︎ Born in South Asia, 1986  ( Britische Staatsbuergerschaft )
+▪︎ Born in Asia, 1986  ( Schweizer Staatsbuergerschaft )
 
-▪︎ Zivildienst Schule in Bodelshausen,  Tuebingen, 2006 
 
 # Contact Details 
 
