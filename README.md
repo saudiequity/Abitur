@@ -32,6 +32,8 @@
 
 ▪︎ Born in Asia, 1986  ( Schweizer Staatsbuergerschaft )
 
+▪︎ Mercedes-Benz Bank Kunde ( Mercedes VISA )
+
 
 # Contact Details 
 
