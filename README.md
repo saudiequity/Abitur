@@ -41,7 +41,7 @@
 
 ▪︎ Body Height: 1.78 m ▪︎ Body weight: ca. 105 kg
 
-▪︎ Musikgenre: Busta Rhymes, 50 Cent G-Unit 
+▪︎ Musikgenre: 50 Cent G-Unit 
 
 
 
