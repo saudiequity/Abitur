@@ -16,18 +16,6 @@
 
 ▪︎ Parallel Computing (Technische Hochschule Blekinge)
 
-# Harvard University 
-
-▪︎ American Politics (Harvard Kennedy School)
-
-▪︎ Data Science (Harvard T.H Chan School of Public Health)
-
-# Heriot Watt University Dubai 
-
-▪︎ Concepts of Finance (Hanken School of Economics)
-
-▪︎ DBA in Mergers and Acquistitions (New York Institute of Finance)
-
 #  CFA Institute Investment Foundations 
 
 <img src="https://user-images.githubusercontent.com/95079463/151157248-4fa7d6fe-7dc8-4cd3-a9e1-3263252d3028.png">
@@ -36,11 +24,9 @@
 
 ▪︎ Swiss Equity Portfolio™️
 
+▪︎ ABB Electricity
+
 ![SwissEquityPortfolio](https://user-images.githubusercontent.com/95079463/156522393-272bb017-e660-4022-a998-33063f54dfd0.png)
-
-▪︎ ABB Electricity Academy 
-
-▪︎ Principles of Engineering (Kings College London)
 
 # Residenz 
 
