@@ -40,7 +40,7 @@
 
 ▪︎ Heimat: Dubai, UAE ( Rajput Koenigreich )
 
-▪︎ Born in Asia, 1986  ( Schweizer Staatsbuergerschaft )
+▪︎ Born in Asia, 14.03.1986  ( Schweizer Staatsbuergerschaft )
 
 ▪︎ Mercedes-Benz Bank Kunde ( Mercedes VISA )
 
