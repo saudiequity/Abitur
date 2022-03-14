@@ -38,7 +38,7 @@
 
 ▪︎ Hobbys : Mixed Martial Arts, Laufen, Snowboarden, Forestry, Modern Standard Arabic, Streetball, Rugby
 
-▪︎ Heimat: Dubai, UAE ( Rajput Koenigreich )
+▪︎ Heimat: Dubai, UAE 
 
 ▪︎ Born in Asia, 14.03.1986  ( Schweizer Staatsbuergerschaft )
 
