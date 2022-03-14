@@ -51,7 +51,7 @@
 
 ▪︎ eMail Address: babermillennium@hotmail.com ▪︎ +4915128118401
 
-▪︎ Body Height: 1.78 m ▪︎ Body weight: ca. 105 kg
+▪︎ Body Height: 1.78 m ▪︎ Body weight: ca. 105 kg (looking for blond finish fitness females)
 
 ▪︎ Musikgenre: 50 Cent G-Unit 
 
