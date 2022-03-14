@@ -40,6 +40,8 @@
 
 ▪︎ Heimat: Dubai, UAE 
 
+▪︎ Wohnort: Jersey Island (Rajput Koenigreich)
+
 ▪︎ Born in Asia, 14.03.1986  ( Schweizer Staatsbuergerschaft )
 
 ▪︎ Mercedes-Benz Bank Kunde ( Mercedes VISA )
