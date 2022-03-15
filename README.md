@@ -18,6 +18,8 @@
 
 # Heriot Watt University Dubai 
 
+▪︎ M&A Concepts (New York Institute of Finance)
+
 ▪︎ DBA Thesis about IT Challenges in Mergers and Acquisitions 
 
 #  CFA Institute Investment Foundations 
