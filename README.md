@@ -48,7 +48,7 @@
 
 ▪︎ Mercedes-Benz Bank Kunde ( Mercedes VISA )
 
-▪︎ Arbeitgeber: Taxi Ahmad Rafique in Bruchsal ( ca. 500 Euro Gehalt monthly)
+▪︎ Arbeitgeber: Taxi Ahmad Rafique in Bruchsal ( ca. 500 Euro Gehalt im Monat)
 
 
 # Contact Details 
