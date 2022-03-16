@@ -49,7 +49,7 @@
 
 ▪︎ Business contact : +491628867324 ▪︎ i.ahmad@vodafone.de 
 
-▪︎ eMail Address: babermillennium@hotmail.com ▪︎ +4915128118401
+▪︎ eMail Address: ijazbaber@zohomail.eu ▪︎ +4915128118401
 
 ▪︎ Body Height: 1.78 m ▪︎ Body weight: ca. 105 kg 
 
