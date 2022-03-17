@@ -50,7 +50,7 @@
 
 ▪︎ Arbeitgeber: Taxi Ahmad Rafique in Bruchsal ( ca. 500 Euro Gehalt im Monat)
 
-▪︎ No drivers license (Landratsamt Karlsruhe)
+▪︎ Bewerbung als Aufsichtsrat Mitglied bei Glencore plc 
 
 # Contact Details 
 
