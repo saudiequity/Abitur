@@ -48,7 +48,7 @@
 
 ▪︎ Mercedes-Benz Bank Kunde ( Mercedes VISA )
 
-▪︎ Arbeitgeber: Taxi Ahmad Rafique in Bruchsal ( ca. 500 Euro Gehalt im Monat)
+▪︎ Arbeitgeber: Taxi Ahmad Rafique in Bruchsal ( ca. 450 Euro Gehalt im Monat)
 
 ▪︎ Bewerbung als Aufsichtsrat Mitglied bei Glencore plc ( Gehaltsvorstellungen liegen bei ca. 432k CHF Jahresgehalt)
 
