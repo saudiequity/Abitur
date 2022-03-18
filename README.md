@@ -52,6 +52,8 @@
 
 ▪︎ Bewerbung als Aufsichtsrat Mitglied bei Blackrock ( Gehaltsvorstellungen liegen bei ca. 432k Euro Jahresgehalt)
 
+▪︎ Pakistan Army Reserve Offizier 
+
 # Contact Details 
 
 ▪︎ Business contact : +491628867324 ▪︎ i.ahmad@vodafone.de 
