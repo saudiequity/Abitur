@@ -44,13 +44,13 @@
 
 ▪︎ Wohnort: Jersey Island (Rajput Koenigreich)
 
-▪︎ Born in Asia, 14.03.1986  ( Schweizer Staatsbuergerschaft )
+▪︎ Born in Asia, 14.03.1986  ( UAE Citizenship )
 
 ▪︎ Mercedes-Benz Bank Kunde ( Mercedes VISA )
 
 ▪︎ Arbeitgeber: Taxi Ahmad Rafique in Bruchsal ( ca. 450 Euro Gehalt im Monat)
 
-▪︎ Bewerbung als Aufsichtsrat Mitglied bei Glencore plc ( Gehaltsvorstellungen liegen bei ca. 432k CHF Jahresgehalt)
+▪︎ Bewerbung als Aufsichtsrat Mitglied bei Blackrock ( Gehaltsvorstellungen liegen bei ca. 432k CHF Jahresgehalt)
 
 # Contact Details 
 
