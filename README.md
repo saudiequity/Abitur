@@ -38,7 +38,7 @@
 
 ▪︎ Hobbys : Mixed Martial Arts, Snowboarden, Forestry, Modern Standard Arabic, Football (Soccer)
 
-▪︎ Heimat: Dubai, UAE 
+▪︎ Heimat: Bad Wildbad, BW, Germany 
 
 ▪︎ Wohnort: Jersey Island (Rajput Koenigreich)
 
