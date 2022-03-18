@@ -56,7 +56,7 @@
 
 ▪︎ Business contact : +491628867324 ▪︎ i.ahmad@vodafone.de 
 
-▪︎ eMail Address: ijazbaber@zohomail.eu ▪︎ +4915128118401
+▪︎ eMail Address: ijazbaber@zohomail.eu ▪︎ +4915735207973
 
 ▪︎ Body Height: 1.78 m ▪︎ Body weight: ca. 105 kg 
 
