@@ -38,7 +38,7 @@
 
 # Residenz 
 
-▪︎ Hobbys : Mixed Martial Arts, Snowboarden, Forestry, Modern Standard Arabic
+▪︎ Hobbys : Mixed Martial Arts, Snowboarden, Forestry, Modern Standard Arabic, Football (Soccer)
 
 ▪︎ Heimat: Dubai, UAE 
 
