@@ -40,7 +40,7 @@
 
 ▪︎ Heimat: Bad Wildbad, BW, Germany 
 
-▪︎ Wohnort: Jersey Island (Rajput Koenigreich)
+▪︎ Wohnort: Bahrain (Rajput Koenigreich)
 
 ▪︎ Born in Asia, 14.03.1986  ( UAE Citizenship )
 
