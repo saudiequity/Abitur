@@ -12,6 +12,8 @@
 
 ![ea1-tl_open_badge](https://user-images.githubusercontent.com/95079463/151658291-bc2de3cf-efd4-4f38-bf4a-dde187391570.png)
 
+▪︎ Wealth Management (Hanken School of Economics)
+
 # Grenoble Ecole De Management
 
 ▪︎ International Relations
@@ -21,6 +23,8 @@
 # Heriot Watt University Dubai 
 
 ▪︎ Real Estate Investments and Finance 
+
+▪︎ Business Management (Kings College London)
 
 #  CFA Institute Investment Foundations 
 
