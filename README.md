@@ -44,7 +44,7 @@
 
 ▪︎ Hobbys : Mixed Martial Arts, Snowboarden, Forestry, Modern Standard Arabic, Football (Soccer)
 
-▪︎ Heimat: Bad Wildbad, BW, Germany 
+▪︎ Heimat: Bad Wildbad, BW, Germany (Schwedische Staatsbuergerschaft)
 
 ▪︎ Wohnort: Bahrain (Rajput Koenigreich)
 
