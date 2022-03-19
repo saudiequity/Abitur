@@ -48,7 +48,7 @@
 
 ▪︎ Wohnort: Bahrain (Rajput Koenigreich)
 
-▪︎ Born in Asia, 14.03.1986  ( UAE Citizenship )
+▪︎ Born in Asia, 14.03.1986  ( Bahrain Citizenship )
 
 ▪︎︎ Arbeitgeber: Taxi Ahmad Rafique in Bruchsal ( ca. 450 Euro Gehalt im Monat)
 
