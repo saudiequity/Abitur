@@ -54,7 +54,6 @@
 
 ▪︎ Bewerbung als Aufsichtsrat Mitglied bei Blackrock ( Gehaltsvorstellungen liegen bei ca. 432k Euro Jahresgehalt)
 
-▪︎ Pakistan Army Drei-Sterne-Offizier (Reserve)
 
 # Contact Details 
 
