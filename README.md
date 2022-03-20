@@ -32,8 +32,6 @@
 
 <img src="https://user-images.githubusercontent.com/95079463/151157248-4fa7d6fe-7dc8-4cd3-a9e1-3263252d3028.png">
 
-▪︎ 10 % Wells Fargo Deal (Kingdom Holding Company)
-
 ▪︎ Swiss Equity Portfolio™️
 
 ![SwissEquityPortfolio](https://user-images.githubusercontent.com/95079463/156522393-272bb017-e660-4022-a998-33063f54dfd0.png)
