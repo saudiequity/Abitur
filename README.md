@@ -4,6 +4,8 @@
 
 ▪︎ Practicing Gratitude (Michigan University)
 
+▪︎ American Politics (Harvard Kennedy School)
+
 # Programming Languages 
 
 ▪︎ Embarcadero Delphi 
