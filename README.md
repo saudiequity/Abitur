@@ -2,8 +2,6 @@
 
 ▪︎ Justus-Knecht Gymnasium Bruchsal
 
-▪︎ Practicing Gratitude (Michigan University)
-
 ▪︎ American Politics (Harvard Kennedy School)
 
 # Programming Languages 
