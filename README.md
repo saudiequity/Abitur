@@ -28,6 +28,8 @@
 
 ▪︎ Real Estate Investments and Finance 
 
+▪︎ Business Management (Kings College London)
+
 #  CFA Institute Investment Foundations 
 
 ▪︎ Financial Markets (Indian School of Business)
