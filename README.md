@@ -36,7 +36,7 @@
 
 ▪︎ Swiss Equity Portfolio™️
 
-![SwissEquityPortfolio](https://user-images.githubusercontent.com/95079463/156522393-272bb017-e660-4022-a998-33063f54dfd0.png)
+![AsiaEquityPortfolio](https://user-images.githubusercontent.com/95079463/159331224-93a982f9-8be8-4683-8809-6ec3f574202e.png)
 
 ▪︎ ABB Academy
 
