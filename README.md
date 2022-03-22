@@ -52,9 +52,6 @@
 
 ▪︎︎ Arbeitgeber: Taxi Ahmad Rafique in Bruchsal ( ca. 450 Euro Gehalt im Monat)
 
-▪︎ Bewerbung als Aufsichtsrat Mitglied bei Blackrock ( Gehaltsvorstellungen liegen bei ca. 432k Euro Jahresgehalt)
-
-
 # Contact Details 
 
 ▪︎ Business contact : +491628867324 ▪︎ i.ahmad@vodafone.de 
