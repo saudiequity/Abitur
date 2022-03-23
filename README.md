@@ -46,11 +46,11 @@
 
 ▪︎ Hobbys : Mixed Martial Arts, Snowboarden, Forestry, Modern Standard Arabic, Football (Soccer)
 
-▪︎ Heimat: Bad Wildbad, BW, Germany (Schwedische Staatsbuergerschaft)
+▪︎ Heimat: Bad Wildbad, BW, Germany 
 
 ▪︎ Wohnort: Bahrain (Rajput Koenigreich)
 
-▪︎ Born in Asia, 14.03.1986  ( Bahrain Citizenship )
+▪︎ Born in Asia, 14.03.1986  ( UAE Citizenship )
 
 ▪︎︎ Arbeitgeber: Taxi Ahmad Rafique in Bruchsal ( ca. 450 Euro Gehalt im Monat)
 
