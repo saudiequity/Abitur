@@ -16,10 +16,6 @@
 
 ▪︎ Wealth Management (Hanken School of Economics)
 
-# Grenoble Ecole De Management
-
-▪︎ International Relations
-
 ▪︎ Phd. Thesis about IT Challenges in Mergers and Acquisitions
 
 # Heriot Watt University Dubai 
