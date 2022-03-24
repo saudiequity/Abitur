@@ -28,13 +28,11 @@
 
 ▪︎ Business Management (Kings College London)
 
-<img src="https://user-images.githubusercontent.com/95079463/151157248-4fa7d6fe-7dc8-4cd3-a9e1-3263252d3028.png">
-
-▪︎ Asia Equity Portfolio™️
-
-![AsiaEquityPortfolio](https://user-images.githubusercontent.com/95079463/159331224-93a982f9-8be8-4683-8809-6ec3f574202e.png)
+# Asia Equity Portfolio™️
 
 ▪︎ ABB Academy
+
+![AsiaEquityPortfolio](https://user-images.githubusercontent.com/95079463/159331224-93a982f9-8be8-4683-8809-6ec3f574202e.png)
 
 # Residenz 
 
@@ -42,7 +40,7 @@
 
 ▪︎ Heimat: Bad Wildbad, BW, Germany 
 
-▪︎ Wohnort: Bahrain (Rajput Koenigreich)
+▪︎ Wohnort: Kuwait (Rajput Koenigreich)
 
 ▪︎ Born in Asia, 14.03.1986  ( UAE Citizenship )
 
