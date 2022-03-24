@@ -27,6 +27,8 @@ https://www.futurelearn.com/certificates/8m2gmnh
 
 ▪︎ Business Management (Kings College London)
 
+▪︎ Portfolio Management (Indian School of Business)
+
 # Asia Equity Portfolio™️
 
 ▪︎ ABB Academy
