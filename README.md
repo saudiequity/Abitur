@@ -41,7 +41,7 @@ https://www.futurelearn.com/certificates/8m2gmnh
 
 ▪︎ Heimat: Bad Wildbad, BW, Germany 
 
-▪︎ Wohnort: Kuwait (Rajput Koenigreich)
+▪︎ Wohnort: Kuwait 
 
 ▪︎ Born in Asia, 14.03.1986  ( UAE Citizenship )
 
