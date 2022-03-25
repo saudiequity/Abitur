@@ -39,7 +39,7 @@ https://www.futurelearn.com/certificates/8m2gmnh
 
 ▪︎ Hobbys : Mixed Martial Arts, Snowboarden, Forestry, Modern Standard Arabic
 
-▪︎ Heimat: Bad Wildbad, BW, Germany 
+▪︎ Heimat: Dubai 
 
 ▪︎ Wohnort: Kuwait 
 
