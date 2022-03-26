@@ -23,7 +23,7 @@ https://www.futurelearn.com/certificates/8m2gmnh
 
 ▪︎ Phd. Thesis about IT Challenges in Mergers and Acquisitions
 
-# Asia Equity Portfolio™️
+# Swiss Equity Portfolio™️
 
 ▪︎ ABB Academy
 
