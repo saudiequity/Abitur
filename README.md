@@ -2,21 +2,17 @@
 
 ▪︎ Justus-Knecht Gymnasium Bruchsal
 
-▪︎ American Politics (Harvard Kennedy School)
-
 # Programming Languages 
 
 ▪︎ Embarcadero Delphi 
 
 # St. Gallen HSG 
 
-▪︎ Software Engineering (University of Muenster)
-
 ![ea1-tl_open_badge](https://user-images.githubusercontent.com/95079463/151658291-bc2de3cf-efd4-4f38-bf4a-dde187391570.png)
 
-▪︎ Wealth Management (Hanken School of Economics)
+▪︎ American Politics (Harvard Kennedy School)
 
-▪︎ Phd. Thesis about IT Challenges in Mergers and Acquisitions
+▪︎ Wealth Management (Hanken School of Economics)
 
 ▪︎ Societal Challenges (University of Basel)
 https://www.futurelearn.com/certificates/8m2gmnh
@@ -24,6 +20,8 @@ https://www.futurelearn.com/certificates/8m2gmnh
 ▪︎ Strategic Management (Copenhagen Business School)
 
 ▪︎ Portfolio Management (Indian School of Business)
+
+▪︎ Phd. Thesis about IT Challenges in Mergers and Acquisitions
 
 # Asia Equity Portfolio™️
 
