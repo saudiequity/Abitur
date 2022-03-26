@@ -21,8 +21,6 @@
 ▪︎ Societal Challenges (University of Basel)
 https://www.futurelearn.com/certificates/8m2gmnh
 
-▪︎ Real Estate Investments and Finance 
-
 ▪︎ Strategic Management (Copenhagen Business School)
 
 ▪︎ Portfolio Management (Indian School of Business)
