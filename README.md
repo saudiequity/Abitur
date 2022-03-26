@@ -39,8 +39,6 @@ https://www.futurelearn.com/certificates/8m2gmnh
 
 ▪︎ Born in Asia, 14.03.1986  ( UAE Citizenship )
 
-▪︎︎ Arbeitgeber: Taxi Ahmad Rafique in Bruchsal ( ca. 450 Euro Gehalt im Monat)
-
 # Contact Details 
 
 ▪︎ eMail Address: ijazbaber@magenta.de ▪︎ +4915128118401
