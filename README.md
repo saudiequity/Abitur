@@ -18,14 +18,12 @@
 
 ▪︎ Phd. Thesis about IT Challenges in Mergers and Acquisitions
 
-# Heriot Watt University Dubai 
-
 ▪︎ Societal Challenges (University of Basel)
 https://www.futurelearn.com/certificates/8m2gmnh
 
 ▪︎ Real Estate Investments and Finance 
 
-▪︎ Business Management (Kings College London)
+▪︎ Strategic Management (Copenhagen Business School)
 
 ▪︎ Portfolio Management (Indian School of Business)
 
