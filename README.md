@@ -21,7 +21,7 @@ https://www.futurelearn.com/certificates/8m2gmnh
 
 ▪︎ Portfolio Management (Indian School of Business)
 
-▪︎ Phd. Thesis about IT Challenges in Mergers and Acquisitions
+▪︎ Phd. Thesis about IT Challenges in Mergers and Acquisitions (Heriot Watt University Dubai)
 
 # Swiss Equity Portfolio™️
 
