@@ -32,7 +32,7 @@
 
 ▪︎ Heimat: Dubai 
 
-▪︎ Wohnort: Kuwait 
+▪︎ Wohnort: Abu Dhabi 
 
 ▪︎ Born in Asia, 14.03.1986  ( UAE Citizenship )
 
