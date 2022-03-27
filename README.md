@@ -14,9 +14,6 @@
 
 ▪︎ Computational Probability (Harvard University)
 
-▪︎ Societal Challenges (University of Basel)
-https://www.futurelearn.com/certificates/8m2gmnh
-
 ▪︎ Strategic Management (Copenhagen Business School)
 
 ▪︎ Portfolio Management (Indian School of Business)
