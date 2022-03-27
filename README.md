@@ -12,6 +12,8 @@
 
 ▪︎ American Politics (Harvard Kennedy School)
 
+▪︎ Computational Probability (Harvard University)
+
 ▪︎ Wealth Management (Hanken School of Economics)
 
 ▪︎ Societal Challenges (University of Basel)
