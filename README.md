@@ -40,6 +40,8 @@
 
 ▪︎ eMail Address: ijazbaber@magenta.de ▪︎ +4915128118401
 
+▪︎ Business contact: ijazbaber@zohomail.eu
+
 ▪︎ Body Height: 1.78 m ▪︎ Body weight: ca. 105 kg 
 
 ▪︎ Musikgenre: 50 Cent G-Unit 
