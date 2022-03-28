@@ -8,9 +8,7 @@
 
 ▪︎ IBM Power Systems (Universitaet Tuebingen)
 
-# St. Gallen HSG 
-
-![ea1-tl_open_badge](https://user-images.githubusercontent.com/95079463/151658291-bc2de3cf-efd4-4f38-bf4a-dde187391570.png)
+# University Education 
 
 ▪︎ American Politics (Harvard Kennedy School)
 
