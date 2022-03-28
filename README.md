@@ -10,8 +10,6 @@
 
 ▪︎ Strategic Management (Copenhagen Business School)
 
-▪︎ Portfolio Management (Indian School of Business)
-
 ▪︎ Phd. Thesis about IT Challenges in Mergers and Acquisitions (Heriot Watt University Dubai)
 
 # Swiss Equity Portfolio™️
