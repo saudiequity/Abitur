@@ -2,13 +2,19 @@
 
 ▪︎ Justus-Knecht Gymnasium Bruchsal
 
+▪︎ Practicing Gratitude (University of Michigan)
+
 # Programming Languages 
 
 ▪︎ Embarcadero Delphi 
 
 # University Education 
 
-▪︎ Strategic Management (Copenhagen Business School)
+▪︎ International Politics (Grenoble Ecole De Management)
+
+▪︎ Business Management (Kings College London)
+
+▪︎ Wealth Management (Hanken School of Economics)
 
 ▪︎ Phd. Thesis about IT Challenges in Mergers and Acquisitions (Heriot Watt University Dubai)
 
