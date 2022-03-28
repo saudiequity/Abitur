@@ -18,7 +18,7 @@
 
 ▪︎ ABB Academy
 
-![AsiaEquityPortfolio](https://user-images.githubusercontent.com/95079463/159331224-93a982f9-8be8-4683-8809-6ec3f574202e.png)
+![Swiss Equity Portfolio](https://user-images.githubusercontent.com/95079463/160344274-85d86ad3-b3f5-4852-836c-09f5bb1e9170.png)
 
 # Residenz 
 
