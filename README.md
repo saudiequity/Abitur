@@ -4,7 +4,7 @@
 
 ▪︎ Practicing Gratitude (University of Michigan)
 
-▪︎ ABB Electricity Academy 
+▪︎ ABB University 
 
 # Programming Languages 
 
