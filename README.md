@@ -42,7 +42,7 @@
 
 ▪︎ eMail Address: ijazbaber@magenta.de ▪︎ +4915128118401
 
-▪︎ Business contact: ijazbaber@zohomail.eu ▪︎ ijazbaber@ik.me
+▪︎ Business contact: ijazbaber@ik.me
 
 ▪︎ Body Height: 1.78 m ▪︎ Body weight: ca. 105 kg 
 
