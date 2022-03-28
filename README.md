@@ -8,10 +8,6 @@
 
 # University Education 
 
-▪︎ American Politics (Harvard Kennedy School)
-
-▪︎ Computational Probability (Harvard University)
-
 ▪︎ Strategic Management (Copenhagen Business School)
 
 ▪︎ Portfolio Management (Indian School of Business)
