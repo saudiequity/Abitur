@@ -10,11 +10,9 @@
 
 # University Education 
 
-▪︎ International Politics (Grenoble Ecole De Management)
-
 ▪︎ Business Management (Kings College London)
 
-▪︎ Wealth Management (Hanken School of Economics)
+▪︎ Portfolio Management (Hanken School of Economics)
 
 ▪︎ Phd. Thesis about IT Challenges in Mergers and Acquisitions (Heriot Watt University Dubai)
 
