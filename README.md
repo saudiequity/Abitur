@@ -6,8 +6,6 @@
 
 ▪︎ ABB University 
 
-▪︎ International Politics (Grenoble Ecole De Management)
-
 # Programming Languages 
 
 ▪︎ Embarcadero Delphi 
