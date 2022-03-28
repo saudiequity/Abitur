@@ -6,8 +6,6 @@
 
 ▪︎ Embarcadero Delphi 
 
-▪︎ IBM Power Systems (Universitaet Tuebingen)
-
 # University Education 
 
 ▪︎ American Politics (Harvard Kennedy School)
