@@ -20,6 +20,8 @@
 
 # Swiss Equity Portfolio™️
 
+▪︎ Julius Baer Bank (London, Dubai)
+
 ![Swiss Equity Portfolio](https://user-images.githubusercontent.com/95079463/160344274-85d86ad3-b3f5-4852-836c-09f5bb1e9170.png)
 
 # Residenz 
