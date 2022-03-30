@@ -34,7 +34,7 @@
 
 ▪︎ Hobbys : Mixed Martial Arts, Snowboarden, Forestry, Modern Standard Arabic
 
-▪︎ Heimat: Stadt Beckum, Neubeckum, NRW, Germany
+▪︎ Heimat: Monaco
 
 ▪︎ Wohnort: Monte-Carlo, Monaco 
 
