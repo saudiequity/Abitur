@@ -29,9 +29,9 @@
 
 ▪︎ Hobbys : Mixed Martial Arts, Snowboarden, Forestry, Modern Standard Arabic
 
-▪︎ Heimat: Dubai 
+▪︎ Heimat: Monaco 
 
-▪︎ Wohnort: Abu Dhabi 
+▪︎ Wohnort: Monte-Carlo, Monaco 
 
 ▪︎ Born in Asia, 14.03.1986  (Schweizer Staatsbuergerschaft)
 
