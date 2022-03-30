@@ -28,7 +28,7 @@
 
 ▪︎ Commerzbank (Dubai, DIFC Dubai International Financial Centre)
 
-▪︎ 10% Credit Suisse Deal mit der KSK Esslingen Nürtingen
+▪︎ Kreissparkasse (Esslingen Nürtingen)
 
 # Residenz 
 
