@@ -28,7 +28,7 @@
 
 ▪︎ Commerzbank (Dubai, DIFC Dubai International Financial Centre)
 
-▪︎ Kreissparkasse (Esslingen Nürtingen)
+▪︎ Kreissparkasse (Esslingen-Nuertingen)
 
 # Residenz 
 
