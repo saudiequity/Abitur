@@ -20,7 +20,7 @@
 
 # Swiss Equity Portfolio™️
 
-▪︎ Julius Baer Bank (Monaco)
+▪︎ Banque J. Safra (Monaco)
 
 ▪︎ Merrill Lynch (Cayman Islands)
 
