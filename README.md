@@ -36,7 +36,7 @@
 
 ▪︎ Heimat: Monaco
 
-▪︎ Wohnort: Monte-Carlo, Monaco 
+▪︎ Wohnort: Monte-Carlo, Monaco (Alpina Automobil Fahrer)
 
 ▪︎ Born in Asia, 14.03.1986  (Schweizer Staatsbuergerschaft)
 
