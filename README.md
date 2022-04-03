@@ -2,7 +2,7 @@
 
 ▪︎ Justus-Knecht Gymnasium Bruchsal
 
-▪︎ Practising Gratitude (Michigan Univeristy) 
+▪︎ Practising Gratitude (Michigan Ross School of Business) 
 
 # Programming Languages 
 
