@@ -2,8 +2,6 @@
 
 ▪︎ Justus-Knecht Gymnasium Bruchsal
 
-▪︎ Practicing Gratitude (University of Michigan)
-
 ▪︎ ABB University 
 
 # Programming Languages 
@@ -11,8 +9,6 @@
 ▪︎ Embarcadero Delphi 
 
 # University Education 
-
-▪︎ Business Management (Kings College London)
 
 ▪︎ Portfolio Management (Hanken School of Economics)
 
