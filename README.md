@@ -2,8 +2,6 @@
 
 ▪︎ Justus-Knecht Gymnasium Bruchsal
 
-▪︎ Business Management (Kings College London) 
-
 # Programming Languages 
 
 ▪︎ Embarcadero Delphi 
