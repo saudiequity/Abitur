@@ -2,11 +2,13 @@
 
 ▪︎ Justus-Knecht Gymnasium Bruchsal
 
-▪︎ ABB University 
+▪︎ Business Management (Kings College London) 
 
 # Programming Languages 
 
 ▪︎ Embarcadero Delphi 
+
+▪︎ ABB Academy
 
 # University Education 
 
