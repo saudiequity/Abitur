@@ -2,6 +2,8 @@
 
 ▪︎ Justus-Knecht Gymnasium Bruchsal
 
+▪︎ Practising Gratitude (Michigan Univeristy) 
+
 # Programming Languages 
 
 ▪︎ Embarcadero Delphi 
