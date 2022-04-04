@@ -34,6 +34,8 @@
 
 ▪︎ Hobbys : Mixed Martial Arts, Snowboarden, Forestry, Modern Standard Arabic
 
+▪︎ Computer Games: Halo Infinite (XBox Game)
+
 ▪︎ Heimat: Monaco
 
 ▪︎ Wohnort: Monte-Carlo, Monaco (Alpina Automobiles Motorsport)
