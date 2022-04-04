@@ -12,6 +12,8 @@
 
 # University Education 
 
+▪︎ Business Management (Kings College London)
+
 ▪︎ Portfolio Management (Hanken School of Economics)
 
 ▪︎ Phd. Thesis about IT Challenges in Mergers and Acquisitions (Heriot Watt University Dubai)
