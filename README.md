@@ -20,7 +20,7 @@
 
 # Swiss Equity Portfolio™️
 
-▪︎ Banque J. Safra (Monaco)
+▪︎ Banque J. Safra (Glencore plc)
 
 ▪︎ Merrill Lynch (Cayman Islands)
 
