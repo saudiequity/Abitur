@@ -28,7 +28,7 @@
 
 ▪︎ Commerzbank (http://therichkidsofdubai.com/ Dubai, DIFC Dubai International Financial Centre) 
 
-▪︎ Kreissparkasse (Esslingen-Nuertingen)
+▪︎ Kreissparkasse Esslingen-Nuertingen (Oerlikon, Sulzer, Swiss Steel)
 
 # Residenz 
 
