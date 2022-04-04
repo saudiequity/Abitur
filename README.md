@@ -36,7 +36,7 @@
 
 ▪︎ Computer Games: Halo Infinite (XBox Game)
 
-▪︎ Heimat: Monaco
+▪︎ Heimat: Monaco (Rajput Koenigreich)
 
 ▪︎ Wohnort: Monte-Carlo, Monaco (Alpina Automobiles Motorsport)
 
