@@ -38,7 +38,7 @@
 
 ▪︎ Wohnort: Monte-Carlo, Monaco (Alpina Automobiles Motorsport)
 
-▪︎ Born in Asia, 14.03.1986  (Schweizer Staatsbuergerschaft)
+▪︎ Born in Asia, 14.03.1986  (UAE Citizenship)
 
 # Contact Details 
 
