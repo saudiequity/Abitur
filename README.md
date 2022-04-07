@@ -34,7 +34,7 @@
 
 ▪︎ Heimat: Monaco (Rajput Koenigreich)
 
-▪︎ Wohnort: Monte-Carlo, Monaco (Brabus Motorsport)
+▪︎ Wohnort: Monte-Carlo, Monaco (Bentley Motorsport)
 
 ▪︎ Born in Asia, 14.03.1986  (Schweizer Staatsbuergerschaft, UAE Citizenship)
 
