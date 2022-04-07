@@ -2,9 +2,9 @@
 
 ▪︎ Justus-Knecht Gymnasium Bruchsal
 
-# Programming Languages 
+# Business Management
 
-▪︎ Embarcadero Delphi 
+▪︎ Cisco Entrepreneurship
 
 ▪︎ ABB Academy
 
