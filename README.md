@@ -2,6 +2,8 @@
 
 ▪︎ Justus-Knecht Gymnasium Bruchsal
 
+▪︎ Principles of Electrical Engineering (SIEMENS Digital Academy)
+
 # Business Management
 
 ▪︎ Cisco Entrepreneurship
