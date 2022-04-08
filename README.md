@@ -34,7 +34,7 @@
 
 ▪︎ Computer Games: City of Brass (XBox)
 
-▪︎ Heimat: Stockholm
+▪︎ Heimat: Dubai, UAE
 
 ▪︎ Wohnort: Monte-Carlo, Monaco (Bentley Motorsport)
 
