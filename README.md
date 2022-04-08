@@ -34,7 +34,7 @@
 
 ▪︎ Hobbys : Mixed Martial Arts, Snowboarden, Forestry, Modern Standard Arabic
 
-▪︎ Computer Games: Halo Infinite (XBox Game)
+▪︎ Computer Games: City of Brass (XBox Game)
 
 ▪︎ Heimat: Stockholm
 
