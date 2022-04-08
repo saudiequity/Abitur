@@ -10,7 +10,11 @@
 
 ▪︎ ABB Academy
 
+▪︎ SAP Statistics 
+
 # University Education 
+
+▪︎ Business Intelligence (University of St.Gallen)
 
 ▪︎ Concepts of M&A (New York Institute of Finance)
 
