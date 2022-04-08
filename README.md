@@ -32,7 +32,7 @@
 
 ▪︎ Computer Games: Halo Infinite (XBox Game)
 
-▪︎ Heimat: Stockholm (Muslim Rajput Koenigreich)
+▪︎ Heimat: Stockholm
 
 ▪︎ Wohnort: Monte-Carlo, Monaco (Bentley Motorsport)
 
