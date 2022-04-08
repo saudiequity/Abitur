@@ -26,7 +26,7 @@
 
 ▪︎ Commerzbank (http://therichkidsofdubai.com/ , Dubai DIFC, Bentley Motors, Brabus) 
 
-▪︎ Kreissparkasse Esslingen-Nuertingen (Oerlikon, Sulzer, Swiss Steel, Glencore plc)
+▪︎ Kreissparkasse Esslingen-Nuertingen (Oerlikon, Sulzer, Swiss Steel, Glencore plc, Zueblin)
 
 # Residenz 
 
