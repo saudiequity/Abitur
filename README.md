@@ -34,7 +34,7 @@
 
 ▪︎ Hobbys : Mixed Martial Arts, Snowboarden, Forestry, Modern Standard Arabic
 
-▪︎ Computer Games: City of Brass (XBox Game)
+▪︎ Computer Games: City of Brass (XBox)
 
 ▪︎ Heimat: Stockholm
 
