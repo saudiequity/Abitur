@@ -32,7 +32,7 @@
 
 ▪︎ Hobbys : Mixed Martial Arts, Snowboarden, Forestry, Modern Standard Arabic
 
-▪︎ Computer Games: City of Brass (XBox)
+▪︎ Computer Games: City of Brass (XBox), Destiny 2 (XBox)
 
 ▪︎ Heimat: Dubai, UAE
 
