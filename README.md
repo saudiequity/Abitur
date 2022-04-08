@@ -14,8 +14,6 @@
 
 # University Education 
 
-▪︎ Business Intelligence (University of St.Gallen)
-
 ▪︎ Concepts of M&A (New York Institute of Finance)
 
 ▪︎ Phd. Thesis about IT Challenges in Mergers and Acquisitions (Heriot Watt University Dubai)
