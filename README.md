@@ -40,7 +40,7 @@
 
 ▪︎ Born in Asia, 14.03.1986  (Schweizer Staatsbuergerschaft, UAE Citizenship)
 
-▪︎ Schwager (Brother-in-law) : Waheed Khan in London 
+▪︎ Schwager (Brother-in-law) : Mr. Waheed Khan in London 
 
 # Contact Details 
 
