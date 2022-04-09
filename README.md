@@ -24,7 +24,7 @@
 
 ![Swiss Equity Portfolio](https://user-images.githubusercontent.com/95079463/160344274-85d86ad3-b3f5-4852-836c-09f5bb1e9170.png)
 
-▪︎ Commerzbank (http://therichkidsofdubai.com/ , Dubai DIFC, Bentley Motors, Brabus) 
+▪︎ Commerzbank (http://therichkidsofdubai.com/ , Dubai DIFC, Bentley Motors, Brabus, Jaguar) 
 
 ▪︎ Kreissparkasse Esslingen-Nuertingen (Oerlikon, Sulzer, Swiss Steel, Glencore plc, Zueblin)
 
@@ -36,7 +36,7 @@
 
 ▪︎ Heimat: Dubai, UAE
 
-▪︎ Wohnort: Monte-Carlo, Monaco (Bentley Motorsport)
+▪︎ Wohnort: Monte-Carlo, Monaco (Jaguar Motorsport)
 
 ▪︎ Born in Asia, 14.03.1986  (Schweizer Staatsbuergerschaft, UAE Citizenship)
 
