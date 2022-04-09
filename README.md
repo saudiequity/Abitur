@@ -40,6 +40,8 @@
 
 ▪︎ Born in Asia, 14.03.1986  (Schweizer Staatsbuergerschaft, UAE Citizenship)
 
+▪︎ Schwager (Brother-in-law) : Waheed Khan in London 
+
 # Contact Details 
 
 ▪︎ eMail Address: ijazbaber@magenta.de ▪︎ +4915128118401 
