@@ -34,7 +34,7 @@
 
 ▪︎ Computer Games: City of Brass (XBox), Destiny 2 (XBox)
 
-▪︎ Heimat: Dubai, UAE (Jaguar Motorsport)
+▪︎ Heimat: London, UK (Jaguar Motorsport)
 
 ▪︎ Wohnort: Monte-Carlo, Monaco (Bentley Motorsport)
 
