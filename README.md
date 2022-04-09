@@ -30,7 +30,7 @@
 
 # Residenz 
 
-▪︎ Hobbys : Mixed Martial Arts, Snowboarden, Forestry, Modern Standard Arabic
+▪︎ Hobbys : Running, Snowboarden, Forestry, Modern Standard Arabic
 
 ▪︎ Computer Games: City of Brass (XBox), Destiny 2 (XBox)
 
