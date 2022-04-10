@@ -32,7 +32,7 @@
 
 ▪︎ Hobbys : Running, Snowboarden, Forestry, Modern Standard Arabic
 
-▪︎ Computer Games: City of Brass (XBox), Destiny 2 (XBox)
+▪︎ Computer Games: City of Brass (XBox), Destiny 2 (XBox), Hitman Agent 47 (PC)
 
 ▪︎ Heimat: London, UK (Jaguar Motorsport)
 
