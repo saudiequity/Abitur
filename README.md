@@ -14,9 +14,11 @@
 
 # University Education 
 
-▪︎ Concepts of M&A (New York Institute of Finance)
+▪︎ Harvard University (American Politics)
 
-▪︎ Phd. Thesis about IT Challenges in Mergers and Acquisitions (Heriot Watt University Dubai)
+▪︎ New York Institute of Finance (Private Banking)
+
+▪︎ Heriot Watt University Dubai (Phd. Thesis about IT Challenges in Mergers and Acquisitions)
 
 # Swiss Equity Portfolio™️
 
