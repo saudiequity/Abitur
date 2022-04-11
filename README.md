@@ -28,7 +28,7 @@
 
 ▪︎ Merrill Lynch (http://therichkidsofdubai.com/ , Dubai DIFC, Brabus, Kingdom Holding Company) 
 
-▪︎ Kreissparkasse Esslingen-Nuertingen (Oerlikon, Sulzer, Swiss Steel, Zueblin, Jaguar)
+▪︎ Kreissparkasse Esslingen-Nuertingen (Karlsdorf-Neuthardt, BW, Germany, Oerlikon, Sulzer, Swiss Steel, Zueblin, Jaguar)
 
 # Residenz 
 
