@@ -30,6 +30,8 @@
 
 ▪︎ Kreissparkasse Esslingen-Nuertingen (Karlsdorf-Neuthardt, BW, Germany, Oerlikon, Sulzer, Swiss Steel, Zueblin, Jaguar)
 
+▪︎ Business contact: babermillennium@yahoo.com
+
 # Residenz 
 
 ▪︎ Hobbys : Running, Snowboarden, Forestry, Modern Standard Arabic
