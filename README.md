@@ -26,7 +26,7 @@
 
 ▪︎ Wells Fargo (@dubailatinevents, DIFC Dubai International Financial Centre, Bentley Motors, Glencore plc)
 
-▪︎ Commerzbank (http://therichkidsofdubai.com/ , Dubai DIFC, Brabus, Kingdom Holding Company) 
+▪︎ Merrill Lynch (http://therichkidsofdubai.com/ , Dubai DIFC, Brabus, Kingdom Holding Company) 
 
 ▪︎ Kreissparkasse Esslingen-Nuertingen (Oerlikon, Sulzer, Swiss Steel, Zueblin, Jaguar)
 
