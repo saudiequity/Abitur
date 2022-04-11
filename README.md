@@ -50,5 +50,5 @@
 
 ▪︎ eMail Address: ijazbaber@magenta.de ▪︎ +4915128118401 
 
-▪︎ Business contact: ijazbaber@ik.me
+
 
