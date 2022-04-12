@@ -34,7 +34,7 @@
 
 # Residenz 
 
-▪︎ Hobbys : Radsport, Snowboarden, Forestry, Modern Standard Arabic
+▪︎ Hobbys : Radsport, Snowboarden, Forestry, Modern Standard Arabic, Mixed Martial Arts
 
 ▪︎ Computer Games: City of Brass (XBox), Hitman Agent 47 (XBox), Wolfenstein Enemy Territories (PC)
 
