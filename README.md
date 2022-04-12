@@ -52,7 +52,7 @@
 
 ▪︎ e-Commerce Startup in 2015 with Iranian Partner (Shahin Reza Owji, New York Westchester Jewish Council)
 
-▪︎ Portfolio Management Consulting in Asperg, Stuttgart with Tunesian Partner (Intellixx GmbH)
+▪︎ Financial Engineering & Integration Consulting in Asperg, Stuttgart with Tunesian Partner (Intellixx GmbH)
 
 
 
