@@ -42,13 +42,17 @@
 
 ▪︎ Wohnort: Monte-Carlo, Monaco (Jaguar Motorsport)
 
-▪︎ Born in Asia, 14.03.1986  (Schweizer Staatsbuergerschaft, UAE Citizenship)
+▪︎ Born in Karachi, Pakistan, 14.03.1986  (Schweizer Staatsbuergerschaft, UAE Citizenship)
 
 ▪︎ Schwager (Brother-in-law) : Mr. Waheed Khan in London 
 
 # Contact Details 
 
 ▪︎ eMail Address: ijazbaber@magenta.de ▪︎ +4915128118401 
+
+▪︎ e-Commerce Startup in 2015 with Iranian Partner (Shahin Reza Owji, New York Westchester Jewish Council)
+
+▪︎ Portfolio Management Consulting in Asperg, Stuttgart with Tunesian Partner (North Africa)
 
 
 
