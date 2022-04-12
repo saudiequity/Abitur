@@ -40,9 +40,9 @@
 
 ▪︎ Computer Games: City of Brass (XBox), Hitman Agent 47 (XBox), Wolfenstein Enemy Territories (PC)
 
-▪︎ Heimat: London, UK (Jaguar Motorsport)
+▪︎ Heimat: London, UK 
 
-▪︎ Wohnort: Monte-Carlo, Monaco
+▪︎ Wohnort: Monte-Carlo, Monaco (Jaguar Motorsport)
 
 ▪︎ Born in Asia, 14.03.1986  (Schweizer Staatsbuergerschaft, UAE Citizenship)
 
