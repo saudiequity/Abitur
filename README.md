@@ -24,9 +24,9 @@
 
 ![Swiss Equity Portfolio](https://user-images.githubusercontent.com/95079463/160344274-85d86ad3-b3f5-4852-836c-09f5bb1e9170.png)
 
-▪︎ Wells Fargo (http://therichkidsofdubai.com/, DIFC Dubai International Financial Centre, Bentley Motors, Glencore plc, Oerlikon, Sulzer, Swiss Steel)
+▪︎ Wells Fargo (http://therichkidsofdubai.com/, DIFC Dubai International Financial Centre, Bentley Motors, Oerlikon, Sulzer, Swiss Steel)
 
-▪︎ Merrill Lynch (@dubailatinevents, Dubai DIFC, Ford Mustang, Kingdom Holding Company) 
+▪︎ Merrill Lynch (@dubailatinevents, Dubai DIFC, Ford Mustang, Kingdom Holding Company, Glencore plc) 
 
 ▪︎ Kreissparkasse Esslingen-Nuertingen (Zueblin, Brabus)
 
