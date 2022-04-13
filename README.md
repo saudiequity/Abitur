@@ -26,7 +26,7 @@
 
 ▪︎ Wells Fargo (http://therichkidsofdubai.com/, DIFC Dubai International Financial Centre, Bentley Motors, Oerlikon, Sulzer, Swiss Steel)
 
-▪︎ Merrill Lynch (@dubailatinevents, Bahrain, Manama, Ford Mustang, Kingdom Holding Company, Glencore plc) 
+▪︎ Merrill Lynch (@dubailatinevents, Dubai DIFC, Ford Mustang, Kingdom Holding Company, Glencore plc) 
 
 ▪︎ Kreissparkasse Esslingen-Nuertingen (Zueblin, Brabus)
 
