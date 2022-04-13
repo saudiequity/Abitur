@@ -50,8 +50,6 @@
 
 ▪︎ eMail Address: ijazbaber@magenta.de ▪︎ +4915128118401 
 
-▪︎ e-Commerce Startup in 2015 with Iranian Partner (Shahin Reza Owji, New York Westchester Jewish Council)
-
 ▪︎ Financial Engineering & Integration Consulting in Asperg, Stuttgart with Tunesian Partner (Intellixx GmbH)
 
 
