@@ -24,11 +24,11 @@
 
 ![Swiss Equity Portfolio](https://user-images.githubusercontent.com/95079463/160344274-85d86ad3-b3f5-4852-836c-09f5bb1e9170.png)
 
-▪︎ Wells Fargo (http://therichkidsofdubai.com/, DIFC Dubai International Financial Centre, Bentley Motors, Glencore plc)
+▪︎ Wells Fargo (http://therichkidsofdubai.com/, DIFC Dubai International Financial Centre, Glencore plc)
 
-▪︎ Merrill Lynch (@dubailatinevents, Dubai DIFC, Ford Mustang, Kingdom Holding Company) 
+▪︎ Merrill Lynch (@dubailatinevents, Dubai DIFC, Kingdom Holding Company) 
 
-▪︎ Kreissparkasse Esslingen-Nuertingen (Oerlikon, Sulzer, Swiss Steel, Brabus)
+▪︎ Kreissparkasse Esslingen-Nuertingen (Oerlikon, Sulzer, Swiss Steel)
 
 ▪︎ Business contact: babermillennium@yahoo.com
 
@@ -38,7 +38,7 @@
 
 ▪︎ Computer Games: City of Brass (XBox), Hitman Agent 47 (XBox), Wolfenstein Enemy Territories (PC)
 
-▪︎ Heimat: London, UK 
+▪︎ Heimat: London, UK (Bentley Motors, Ford Mustang, Mercedes AMG, Porsche)
 
 ▪︎ Wohnort: Monte-Carlo, Monaco (Jaguar Motorsport)
 
