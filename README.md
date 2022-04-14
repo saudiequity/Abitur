@@ -22,6 +22,8 @@
 
 ▪︎ Amazon Web Services (Konto-ID: 3065-5829-7301)
 
+▪︎ Schweizer Milliardär (Zwei Milliarden Franken Privatvermoegen. Postfiance Kontonummer 15-174627-7)
+
 ![Swiss Equity Portfolio](https://user-images.githubusercontent.com/95079463/160344274-85d86ad3-b3f5-4852-836c-09f5bb1e9170.png)
 
 ▪︎ Wells Fargo (http://therichkidsofdubai.com/, DIFC Dubai International Financial Centre, Kingdom Holding Company)
