@@ -14,6 +14,8 @@
 
 ▪︎ Harvard University (American Politics)
 
+▪︎ Hanken School of Economics (Private Banking)
+
 ▪︎ Heriot Watt University Dubai (Real Estate Investment and Finance)
 
 # Swiss Equity Portfolio™️
