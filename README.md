@@ -8,8 +8,6 @@
 
 ▪︎ ABB Academy
 
-▪︎ SAP Statistics 
-
 # University Education 
 
 ▪︎ Harvard University (American Politics)
