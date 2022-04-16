@@ -16,7 +16,7 @@
 
 ▪︎ Grenoble Ecole De Management (International Business)
 
-▪︎ Heriot Watt University Dubai (Phd. Thesis about IT Challenges in Mergers and Acquisitions)
+▪︎ Heriot Watt University Dubai (Real Estate Investment and Finance)
 
 # Swiss Equity Portfolio™️
 
