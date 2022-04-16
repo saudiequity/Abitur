@@ -20,7 +20,7 @@
 
 ▪︎ Amazon Web Services (Konto-ID: 3065-5829-7301)
 
-▪︎ Schweizer Milliardaer (Zwei Mrd Franken Privatvermoegen, Julius Baer Bank in Dubai, DIFC, @dubailatinevents, Glencore plc)
+▪︎ Schweizer Milliardaer (Zwei Mrd Franken Privatvermoegen, Julius Baer Bank in London, UK, @dubailatinevents, Glencore plc)
 
 ![Swiss Equity Portfolio](https://user-images.githubusercontent.com/95079463/160344274-85d86ad3-b3f5-4852-836c-09f5bb1e9170.png)
 
