@@ -12,9 +12,7 @@
 
 # University Education 
 
-▪︎ Hanken School of Economics (Private Banking)
-
-▪︎ Grenoble Ecole De Management (International Business)
+▪︎ Harvard University (American Politics)
 
 ▪︎ Heriot Watt University Dubai (Real Estate Investment and Finance)
 
