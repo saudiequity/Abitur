@@ -14,7 +14,7 @@
 
 ▪︎ Hanken School of Economics (Private Banking)
 
-▪︎ Grenoble Ecole De Management (International Politics)
+▪︎ Grenoble Ecole De Management (International Business)
 
 ▪︎ Heriot Watt University Dubai (Phd. Thesis about IT Challenges in Mergers and Acquisitions)
 
