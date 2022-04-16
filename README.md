@@ -28,7 +28,7 @@
 
 ▪︎ Merrill Lynch (@dubailatinevents, Dubai DIFC, Glencore plc) 
 
-▪︎ Kreissparkasse Esslingen-Nuertingen (Oerlikon, Sulzer, Swiss Steel)
+▪︎ Commerzbank in Dubai, DIFC (Oerlikon, Sulzer, Swiss Steel)
 
 ▪︎ Business contact: babermillennium@yahoo.com
 
