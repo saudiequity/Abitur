@@ -8,6 +8,8 @@
 
 ▪︎ ABB Academy
 
+▪︎ CFI Wealth Management
+
 # University Education 
 
 ▪︎ Harvard University (American Politics)
