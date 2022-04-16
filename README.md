@@ -20,13 +20,13 @@
 
 ▪︎ Amazon Web Services (Konto-ID: 3065-5829-7301)
 
-▪︎ Schweizer Milliardaer (Zwei Mrd Franken Privatvermoegen, Julius Baer Bank in Dubai, DIFC)
+▪︎ Schweizer Milliardaer (Zwei Mrd Franken Privatvermoegen, Julius Baer Bank in Dubai, DIFC, @dubailatinevents, Glencore plc)
 
 ![Swiss Equity Portfolio](https://user-images.githubusercontent.com/95079463/160344274-85d86ad3-b3f5-4852-836c-09f5bb1e9170.png)
 
-▪︎ Wells Fargo (http://therichkidsofdubai.com/, DIFC Dubai International Financial Centre, Kingdom Holding Company)
+▪︎ Wells Fargo (http://therichkidsofdubai.com/, DIFC Dubai International Financial Centre, Credit Suisse)
 
-▪︎ Merrill Lynch (@dubailatinevents, Dubai DIFC, Glencore plc) 
+▪︎ Merrill Lynch (Frankfurt, Germany, Kingdom Holding Company) 
 
 ▪︎ Commerzbank in Dubai, DIFC (Oerlikon, Sulzer, Swiss Steel)
 
