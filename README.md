@@ -28,7 +28,7 @@
 
 ▪︎ Merrill Lynch (Frankfurt, Germany, Kingdom Holding Company) 
 
-▪︎ Commerzbank in Dubai, DIFC (Oerlikon, Sulzer, Swiss Steel)
+▪︎ Commerzbank in Zuerich, Switzerland (Oerlikon, Sulzer, Swiss Steel)
 
 ▪︎ Business contact: babermillennium@yahoo.com
 
