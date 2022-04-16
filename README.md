@@ -12,9 +12,9 @@
 
 # University Education 
 
-▪︎ Harvard University (American Politics)
+▪︎ Hanken School of Economics (Private Banking)
 
-▪︎ New York Institute of Finance (Private Banking)
+▪︎ Grenoble Ecole De Management (International Politics)
 
 ▪︎ Heriot Watt University Dubai (Phd. Thesis about IT Challenges in Mergers and Acquisitions)
 
