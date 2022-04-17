@@ -26,7 +26,7 @@
 
 ![Swiss Equity Portfolio](https://user-images.githubusercontent.com/95079463/160344274-85d86ad3-b3f5-4852-836c-09f5bb1e9170.png)
 
-▪︎ Commerzbank (http://therichkidsofdubai.com/, Stockholm, Sweden, Julius Baer Group AG)
+▪︎ Commerzbank (http://therichkidsofdubai.com/, @dubailatinevents, Julius Baer Group AG)
 
 ▪︎ Merrill Lynch (Frankfurt, Germany, Kingdom Holding Company) 
 
