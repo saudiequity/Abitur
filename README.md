@@ -24,7 +24,7 @@
 
 ▪︎ Schweizer Milliardaer in London, UK, Coutts Bank, zwei Milliarden Franken
 
-![Swiss Equity Portfolio](https://user-images.githubusercontent.com/95079463/160344274-85d86ad3-b3f5-4852-836c-09f5bb1e9170.png)
+![Swiss Equity Portfolio](https://user-images.githubusercontent.com/95079463/163727001-ec82ed9d-01c8-483a-9ea6-583deac8b27b.png)
 
 ▪︎ Commerzbank (http://therichkidsofdubai.com/, @dubailatinevents, Julius Baer Group AG)
 
