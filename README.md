@@ -31,7 +31,7 @@
 ▪︎ Merrill Lynch (Frankfurt, Germany, Kingdom Holding Company) 
 
 ▪︎ Commerzbank in Zuerich, Switzerland (Oerlikon, Sulzer, Swiss Steel)
-(KSK Essliingen)
+
 ▪︎ Business contact: babermillennium@yahoo.com
 
 # Residenz 
