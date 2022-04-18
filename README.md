@@ -44,7 +44,7 @@
 
 ▪︎ Wohnort: Monte-Carlo, Monaco (Jaguar Motorsport)
 
-▪︎ Born in Karachi, Pakistan, 14.03.1986  (Schweizer Staatsbuergerschaft, UAE Citizenship)
+▪︎ Born in Karachi, Pakistan, 14.03.1986  (American Diplomatic Passport, UAE Citizenship)
 
 ▪︎ Schwager (Brother-in-law) : Mr. Waheed Khan in London 
 
