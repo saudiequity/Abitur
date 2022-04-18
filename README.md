@@ -7,7 +7,6 @@
 
 ▪︎ ABB Academy
 
-▪︎ CFI Wealth Management
 
 # University Education 
 
