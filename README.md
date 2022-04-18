@@ -22,11 +22,11 @@
 
 ▪︎ Amazon Web Services (Konto-ID: 3065-5829-7301)
 
-▪︎ Schweizer Milliardaer in London, UK, Coutts Bank (Kingdom Holding Company)
+▪︎ Schweizer Milliardaer in London, UK, Coutts Bank (Glencore plc)
 
 ![Swiss Equity Portfolio](https://user-images.githubusercontent.com/95079463/163727001-ec82ed9d-01c8-483a-9ea6-583deac8b27b.png)
 
-▪︎ Commerzbank (http://therichkidsofdubai.com/, @dubailatinevents, Glencore plc)
+▪︎ Commerzbank (http://therichkidsofdubai.com/, @dubailatinevents, Kingdom Holding Company)
 
 ▪︎ Merrill Lynch (Frankfurt, Germany,Julius Baer Group AG) 
 
