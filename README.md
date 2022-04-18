@@ -41,9 +41,8 @@
 
 ▪︎ Wohnort: Monte-Carlo, Monaco (Brabus Motorsport)
 
-▪︎ Born in Karachi, Pakistan, 14.03.1986  (Schweizer Staatsbuergerschaft)
+▪︎ Geboren am 14.03.1986  (Schweizer Staatsbuergerschaft)
 
-▪︎ Schwager (Brother-in-law) : Mr. Waheed Khan in London 
 
 # Contact Details 
 
