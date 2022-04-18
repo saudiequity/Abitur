@@ -22,7 +22,7 @@
 
 ▪︎ Amazon Web Services (Konto-ID: 3065-5829-7301)
 
-▪︎ Schweizer Milliardaer in London, UK, Coutts Bank (Glencore plc)
+▪︎ Amercian Billionaire in Stockholm, Wells Fargo (Glencore plc)
 
 ![Swiss Equity Portfolio](https://user-images.githubusercontent.com/95079463/163727001-ec82ed9d-01c8-483a-9ea6-583deac8b27b.png)
 
@@ -40,7 +40,7 @@
 
 ▪︎ Computer Games: City of Brass (XBox), Hitman Agent 47 (XBox), Wolfenstein Enemy Territories (PC)
 
-▪︎ Heimat: London, UK (Bentley Motors, Ford Mustang, Mercedes AMG)
+▪︎ Heimat: Stockholm, Sweden (Bentley GT, Ford Mustang, Mercedes AMG GT)
 
 ▪︎ Wohnort: Monte-Carlo, Monaco (Jaguar Motorsport)
 
