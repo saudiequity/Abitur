@@ -22,13 +22,13 @@
 
 ▪︎ Amazon Web Services (Konto-ID: 3065-5829-7301)
 
-▪︎ Schweizer Milliardaer in London, UK, Coutts Bank, zwei Milliarden Franken
+▪︎ Schweizer Milliardaer in London, UK, Coutts Bank, zwei Milliarden Franken (Kingdom Holding Company)
 
 ![Swiss Equity Portfolio](https://user-images.githubusercontent.com/95079463/163727001-ec82ed9d-01c8-483a-9ea6-583deac8b27b.png)
 
 ▪︎ Commerzbank (http://therichkidsofdubai.com/, @dubailatinevents)
 
-▪︎ Merrill Lynch (Frankfurt, Germany, Kingdom Holding Company, Julius Baer Group AG) 
+▪︎ Merrill Lynch (Frankfurt, Germany,Julius Baer Group AG) 
 
 ▪︎ Commerzbank in Zuerich, Switzerland (Oerlikon, Sulzer, Swiss Steel)
 
