@@ -28,7 +28,7 @@
 
 ▪︎ Commerzbank (http://therichkidsofdubai.com/, @dubailatinevents, Kingdom Holding Company)
 
-▪︎ Merrill Lynch (Frankfurt, Germany,Julius Baer Group AG) 
+▪︎ Baumann & Cie Privatbank in Zuerich
 
 ▪︎ Commerzbank in Zuerich, Switzerland (Oerlikon, Sulzer, Swiss Steel)
 
