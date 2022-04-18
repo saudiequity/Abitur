@@ -22,7 +22,7 @@
 
 ▪︎ Amazon Web Services (Konto-ID: 3065-5829-7301)
 
-▪︎ Amercian Billionaire in Stockholm, Wells Fargo (Glencore plc)
+▪︎ Schweizer Milliardaer in London, UK, Coutts Bank (Glencore plc)
 
 ![Swiss Equity Portfolio](https://user-images.githubusercontent.com/95079463/163727001-ec82ed9d-01c8-483a-9ea6-583deac8b27b.png)
 
@@ -44,7 +44,7 @@
 
 ▪︎ Wohnort: Monte-Carlo, Monaco (Jaguar Motorsport)
 
-▪︎ Born in Karachi, Pakistan, 14.03.1986  (American Diplomatic Passport, UAE Citizenship)
+▪︎ Born in Karachi, Pakistan, 14.03.1986  (Schweizer Staatsbuergerschaft, UAE Citizenship)
 
 ▪︎ Schwager (Brother-in-law) : Mr. Waheed Khan in London 
 
