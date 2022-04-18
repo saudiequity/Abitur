@@ -11,7 +11,7 @@
 
 # University Education 
 
-▪︎ Harvard University (American Politics)
+
 
 ▪︎ Hanken School of Economics (Private Banking)
 
