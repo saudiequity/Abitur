@@ -48,7 +48,6 @@
 
 ▪︎ eMail Address: ijazbaber@magenta.de ▪︎ +4915128118401 
 
-▪︎ Financial Engineering & Integration Consulting in Asperg, Stuttgart with Tunesian Partner (Intellixx GmbH)
 
 
 
