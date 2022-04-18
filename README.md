@@ -4,7 +4,6 @@
 
 # Business Management
 
-▪︎ Cisco Entrepreneurship
 
 ▪︎ ABB Academy
 
