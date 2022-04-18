@@ -15,6 +15,8 @@
 ▪︎ Hanken School of Economics (Private Banking)
 
 
+▪︎ Grenoble Ecole De Management 
+
 # Swiss Equity Portfolio™️
 
 ▪︎ Amazon Web Services (Konto-ID: 3065-5829-7301)
@@ -35,9 +37,9 @@
 
 ▪︎ Computer Games: City of Brass (XBox), Hitman Agent 47 (XBox), Wolfenstein Enemy Territories (PC)
 
-▪︎ Heimat: London, UK (Bentley GT, Mercedes AMG GT)
+▪︎ Heimat: London, UK (Mercedes AMG)
 
-▪︎ Wohnort: Monte-Carlo, Monaco (Jaguar Motorsport)
+▪︎ Wohnort: Monte-Carlo, Monaco (Brabus Motorsport)
 
 ▪︎ Born in Karachi, Pakistan, 14.03.1986  (Schweizer Staatsbuergerschaft)
 
