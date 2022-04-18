@@ -40,7 +40,7 @@
 
 ▪︎ Computer Games: City of Brass (XBox), Hitman Agent 47 (XBox), Wolfenstein Enemy Territories (PC)
 
-▪︎ Heimat: Stockholm, Sweden (Bentley GT, Mercedes AMG GT)
+▪︎ Heimat: London, UK (Bentley GT, Mercedes AMG GT)
 
 ▪︎ Wohnort: Monte-Carlo, Monaco (Jaguar Motorsport)
 
