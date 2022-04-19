@@ -26,7 +26,6 @@
 
 ![Swiss Equity Portfolio](https://user-images.githubusercontent.com/95079463/163727001-ec82ed9d-01c8-483a-9ea6-583deac8b27b.png)
 
-▪︎ Baumann & Cie Privatbank in Zuerich
 
 ▪︎ Bank J. Safra Sarasin in Genf
 
@@ -51,7 +50,7 @@
 
 ▪︎ eMail Address: ijazbaber@magenta.de ▪︎ +4915128118401 
 
-▪︎ Contact & Friendship with Lebanese, Berber (Marokko), Tuensian.
+▪︎ Contact & Friendship with Lebanese, Berber (Marokko), Tuensian, .
 
 
 
