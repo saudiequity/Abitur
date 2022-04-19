@@ -28,6 +28,8 @@
 
 ▪︎ Baumann & Cie Privatbank in Zuerich
 
+▪︎ Bank J. Jafra Sarasin in Genf
+
 ▪︎ Commerzbank in Zuerich, Switzerland (Oerlikon, Sulzer, Swiss Steel, Kingdom Holding Company)
 
 ▪︎ Business contact: babermillennium@yahoo.com
