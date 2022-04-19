@@ -28,7 +28,7 @@
 
 ▪︎ Baumann & Cie Privatbank in Zuerich
 
-▪︎ Bank J. Jafra Sarasin in Genf
+▪︎ Bank J. Safra Sarasin in Genf
 
 ▪︎ Commerzbank in Zuerich, Switzerland (Oerlikon, Sulzer, Swiss Steel, Kingdom Holding Company)
 
