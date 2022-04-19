@@ -22,14 +22,14 @@
 
 ▪︎ Amazon Web Services (Konto-ID: 3065-5829-7301)
 
-▪︎ Schweizer Milliardaer in London, UK, Coutts Bank (Glencore plc)
+
 
 ![Swiss Equity Portfolio](https://user-images.githubusercontent.com/95079463/163727001-ec82ed9d-01c8-483a-9ea6-583deac8b27b.png)
 
 
 ▪︎ Bank J. Safra Sarasin in Genf
 
-▪︎ Commerzbank in Zuerich, Switzerland (Oerlikon, Sulzer, Swiss Steel, Kingdom Holding Company)
+▪︎ Commerzbank in Zuerich, Switzerland (Oerlikon, Sulzer, Swiss Steel, Kingdom Holding Company, Glencore plc)
 
 ▪︎ Business contact: babermillennium@yahoo.com
 
