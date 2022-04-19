@@ -50,7 +50,7 @@
 
 ▪︎ eMail Address: ijazbaber@magenta.de ▪︎ +4915128118401 
 
-▪︎ Contact & Friendship with Lebanese, Berber (Marokko), Tuensian, .
+▪︎ Contact & Friendship with Lebanese, Berber (Marokko), Tuensian, Egyptian.
 
 
 
