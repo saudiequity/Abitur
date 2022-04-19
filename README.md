@@ -2,8 +2,9 @@
 
 ▪︎ Justus-Knecht Gymnasium Bruchsal
 
-# Business Management
+▪︎ University of Basel (Societal Challenges)
 
+# Business Management
 
 ▪︎ ABB Academy
 
@@ -11,10 +12,7 @@
 
 # University Education 
 
-
-
 ▪︎ Hanken School of Economics (Private Banking)
-
 
 ▪︎ Grenoble Ecole De Management 
 
@@ -22,10 +20,7 @@
 
 ▪︎ Amazon Web Services (Konto-ID: 3065-5829-7301)
 
-
-
 ![Swiss Equity Portfolio](https://user-images.githubusercontent.com/95079463/163727001-ec82ed9d-01c8-483a-9ea6-583deac8b27b.png)
-
 
 ▪︎ Bank J. Safra Sarasin in Genf
 
