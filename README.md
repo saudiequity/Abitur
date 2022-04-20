@@ -22,7 +22,7 @@
 
 ![Swiss Equity Portfolio](https://user-images.githubusercontent.com/95079463/163727001-ec82ed9d-01c8-483a-9ea6-583deac8b27b.png)
 
-▪︎ Bank J. Safra Sarasin in Genf (Postfinance Kontonummer 15-174627-7) 
+▪︎ Bank J. Safra Sarasin in Genf ( Nummer 15-174627-7  ) 
 
 ▪︎ Commerzbank in Zuerich, Switzerland (Oerlikon, Sulzer, Swiss Steel, Kingdom Holding Company, Glencore plc)
 
