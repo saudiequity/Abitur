@@ -47,7 +47,7 @@
 
 ▪︎ Contact & Friendship with Lebanese, Berber (Marokko), Tuensian, Egyptian.
 
-▪︎ [Pinterest](https://www.pinterest.de/ijazbaberahmad/): @ijazbaberahmad
+▪︎ Pinterest: [@ijazbaberahmad](https://www.pinterest.de/ijazbaberahmad/)
 
 
 
