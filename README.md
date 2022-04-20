@@ -30,9 +30,9 @@
 
 # Residenz 
 
-▪︎ Hobbys : Radsport, Snowboarden, Forestry, Modern Standard Arabic, Mixed Martial Arts
+▪︎ Hobbys : Radsport, Snowboarden, Forestry, Modern Standard Arabic, Mixed Martial Arts, Football (Soccer), Running
 
-▪︎ Computer Games: City of Brass (XBox), Hitman Agent 47 (XBox), Wolfenstein Enemy Territories (PC)
+▪︎ Computer Games: City of Brass (XBox), Hitman Agent 47 (XBox)
 
 ▪︎ Heimat: London, UK (Mercedes AMG)
 
