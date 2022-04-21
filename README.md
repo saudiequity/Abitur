@@ -34,9 +34,9 @@
 
 ▪︎ Hobbys : Radsport, Snowboarden, Forestry, Modern Standard Arabic, Mixed Martial Arts, Football (Soccer), Running
 
-▪︎ Computer Games: City of Brass (XBox), Hitman Agent 47 (XBox)
+▪︎ Computer Games: City of Brass (XBox), Halo Infinite (XBox)
 
-▪︎ Heimat: London, UK (Mercedes AMG)
+▪︎ Heimat: Geneve, Switzerland (Mercedes AMG)
 
 ▪︎ Wohnort: Monte-Carlo, Monaco (Brabus Motorsport)
 
@@ -51,5 +51,5 @@
 
 ▪︎ Pinterest: [@ijazbaberahmad](https://www.pinterest.de/ijazbaberahmad/)
 
-
+▪︎ Musikgenre: 50 Cent G-Unit
 
