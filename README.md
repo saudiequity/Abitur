@@ -49,7 +49,7 @@
 
 ▪︎ Beruf: Rechnungswesen, Krankenfahrten Abrechnung mit CS DTA 
 
-▪︎ Contact & Friendship with Lebanese, Iranian, Tuensian, Egyptian.
+
 
 ▪︎ Pinterest: [@ijazbaberahmad](https://www.pinterest.de/ijazbaberahmad/)
 
