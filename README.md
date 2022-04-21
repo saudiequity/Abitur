@@ -47,7 +47,7 @@
 
 ▪︎ eMail Address: ijazbaber@magenta.de ▪︎ +4915128118401 
 
-▪︎ Beruf: Rechnungswesen, Krankenfahrten Abrechnung mit CS DTA 
+▪︎ Beruf: Krankenfahrten Abrechnung mit CS DTA 
 
 
 
