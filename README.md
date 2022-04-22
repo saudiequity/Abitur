@@ -26,7 +26,7 @@
 
 ▪︎ Bank J. Safra Sarasin in Genf ( Nummer 15-174627-7  ) 
 
-▪︎ Delen Private Bank in Zuerich, Switzerland (Oerlikon, Sulzer, Swiss Steel, Kingdom Holding Company, Glencore plc)
+▪︎ Baumann & Cie Zuerich, Switzerland (Oerlikon, Sulzer, Swiss Steel, Kingdom Holding Company, Glencore plc)
 
 ▪︎ Business contact: babermillennium@yahoo.com
 
