@@ -26,7 +26,7 @@
 
 ▪︎ Bank J. Safra Sarasin in Genf ( Nummer 15-174627-7  ) 
 
-▪︎ Baumann & Cie Zuerich, Switzerland (Oerlikon, Sulzer, Swiss Steel, Kingdom Holding Company, Glencore plc)
+▪︎ Bank J. Safra Sarasin in Zuerich, Switzerland (Oerlikon, Sulzer, Swiss Steel, Kingdom Holding Company, Glencore plc)
 
 ▪︎ Business contact: babermillennium@yahoo.com
 
