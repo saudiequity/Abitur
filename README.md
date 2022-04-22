@@ -47,6 +47,9 @@
 
 ▪︎ eMail Address: ijazbaber@magenta.de ▪︎ +4915128118401 
 
+▪︎ Contact % Friendship with Lebanese, Berber (Marokko), Tunesian, Egyptian.
+
+
 ▪︎ Beruf: Krankenfahrten Abrechnung mit CS DTA 
 
 
