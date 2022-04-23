@@ -18,7 +18,7 @@
 
 # Swiss Equity Portfolio™️
 
-▪︎ Amazon Web Services (Konto-ID: 3065-5829-7301)
+▪︎ CFI Wealth Management
 
 ▪︎ SIEMENS Electrical Engineering
 
@@ -49,10 +49,9 @@
 
 ▪︎ Contact & Friendship with Lebanese, Berber (Marokko), Tunesian, Egyptian, Spanish
 
+▪︎ Amazon Web Services (Konto-ID: 3065-5829-7301)
 
 ▪︎ Beruf: Krankenfahrten Abrechnung mit CS DTA 
-
-
 
 ▪︎ Pinterest: [@ijazbaberahmad](https://www.pinterest.de/ijazbaberahmad/)
 
