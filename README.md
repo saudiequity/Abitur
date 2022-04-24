@@ -36,7 +36,7 @@
 
 # Residenz 
 
-▪︎ Hobbys : Radsport, Snowboarden, Forestry, Modern Standard Arabic, Mixed Martial Arts, Rugby, Running
+▪︎ Hobbys : Radsport, Snowboarden, Forestry, Modern Standard Arabic, Mixed Martial Arts, Rugby, Running, Oracle Red Bull Racing
 
 ▪︎ Computer Games: City of Brass (XBox), Halo Infinite (XBox)
 
