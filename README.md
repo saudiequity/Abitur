@@ -4,6 +4,10 @@
 
 ▪︎ University of Basel (Societal Challenges)
 
+# Computational Physics 
+
+▪︎ Maple, Maplesoft
+
 # Business Management
 
 ▪︎ ABB Academy
