@@ -63,3 +63,4 @@
 
 ▪︎ Musikgenre: 50 Cent G-Unit
 
+▪︎ Konstanz, Bodensee, BW, Germany
