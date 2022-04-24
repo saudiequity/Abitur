@@ -18,7 +18,7 @@
 
 ▪︎ Hanken School of Economics (Private Banking)
 
-▪︎ Grenoble Ecole De Management 
+▪︎ Grenoble Ecole De Management (International Relations)
 
 # Swiss Equity Portfolio™️
 
