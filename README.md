@@ -59,5 +59,7 @@
 
 ▪︎ Pinterest: [@ijazbaberahmad](https://www.pinterest.de/ijazbaberahmad/)
 
+▪︎ LinkedIn: [@ijaz-ahmad](https://www.linkedin.com/in/ijaz-ahmad-69677b13a/)
+
 ▪︎ Musikgenre: 50 Cent G-Unit
 
