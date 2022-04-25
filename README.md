@@ -51,7 +51,7 @@
 
 ▪︎ eMail Address: ijazbaber@magenta.de ▪︎ +4915128118401 
 
-▪︎ Contact & Friendship with Lebanese, Berber (Marokko), Egyptian, Spanish, Kasachstan, Serbien
+▪︎ Contact & Friendship with Lebanese, Berber (Marokko) Egyptian, Spanish, Kasachstan, Serbien
 
 ▪︎ Amazon Web Services (Konto-ID: 3065-5829-7301)
 
