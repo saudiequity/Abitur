@@ -4,6 +4,7 @@
 
 ▪︎ ABB Academy
 
+▪︎ SIEMENS Electrical Engineering
 
 # Business Management
 
@@ -11,6 +12,7 @@
 
 ▪︎ University of Basel (Societal Challenges)
 
+▪︎ CFI Wealth Management
 
 # University Education 
 
@@ -18,12 +20,14 @@
 
 ▪︎ Grenoble Ecole De Management (International Relations)
 
+▪︎ ESMT Berlin Executive MBA (Technologie, Strategie und Leadership)
+
 # Swiss Equity Portfolio™️
 
-▪︎ CFI Wealth Management
 
-▪︎ SIEMENS Electrical Engineering
 
+
+ 
 ![Swiss Equity Portfolio](https://user-images.githubusercontent.com/95079463/163727001-ec82ed9d-01c8-483a-9ea6-583deac8b27b.png)
 
 ▪︎ Bank J. Safra Sarasin in Genf ( Nummer 15-174627-7  ) 
