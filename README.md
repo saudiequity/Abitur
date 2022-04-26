@@ -10,7 +10,7 @@
 
 ▪︎ Kings College London (Business Management)
 
-▪︎ University of Basel (Societal Challenges)
+▪︎ St. Gallen HSG (Business Intelligence)
 
 ▪︎ CFI Wealth Management
 
