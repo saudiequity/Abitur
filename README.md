@@ -6,6 +6,8 @@
 
 ▪︎ SIEMENS Electrical Engineering
 
+▪︎ SAP Enterprise Architecture
+
 # Business Management
 
 ▪︎ Kings College London (Business Management)
