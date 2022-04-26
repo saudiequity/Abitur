@@ -26,13 +26,13 @@
 
 ▪︎ Bank J. Safra Sarasin in Genf ( Nummer 15-174627-7  ) 
 
-▪︎ Bank J. Safra Sarasin in Zuerich, Switzerland (Oerlikon, Sulzer, Swiss Steel, Kingdom Holding Company, Glencore plc)
+▪︎ Bank J. Safra Sarasin in Zuerich, Switzerland (Oerlikon, Sulzer, Swiss Steel, Kingdom Holding Company)
 
 ▪︎ Business contact: babermillennium@yahoo.com
 
 # Residenz 
 
-▪︎ Hobbys : Radsport, Snowboarden, Forestry, Modern Standard Arabic, Mixed Martial Arts, Rugby, Running, Oracle Red Bull Racing
+▪︎ Hobbys : Radsport, Snowboarden, Forestry, Modern Standard Arabic, Mixed Martial Arts
 
 ▪︎ Computer Games: City of Brass (XBox), Halo Infinite (XBox)
 
