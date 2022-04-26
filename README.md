@@ -6,15 +6,11 @@
 
 ▪︎ SIEMENS Electrical Engineering
 
-▪︎ SAP Enterprise Architecture
-
-▪︎ OPENHPI Intrapreneurship
-
 # Business Management
 
 ▪︎ Kings College London (Business Management)
 
-▪︎ CFI Wealth Management
+▪︎ FH Joannum & Cracow University of Economics (Intrapreneurship)
 
 ▪︎ University of Basel (Societal Challenges)
 
@@ -28,7 +24,7 @@
 
 # Swiss Equity Portfolio™️
 
-
+▪ CFI Wealth Management
 
 
 
