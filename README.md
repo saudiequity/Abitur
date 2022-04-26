@@ -56,6 +56,8 @@
 
 ▪︎ Contact & Friendship with Lebanese, Egyptian, Spanish, Kasachstan, Serbien
 
+▪︎ Schwager : Waheed Khan (London, UK)
+
 ▪︎ Amazon Web Services (Konto-ID: 3065-5829-7301)
 
 ▪︎ Beruf: Krankenfahrten Abrechnung mit CS DTA 
