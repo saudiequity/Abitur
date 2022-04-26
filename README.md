@@ -12,7 +12,7 @@
 
 ▪︎ St. Gallen HSG (Business Intelligence)
 
-▪︎ CFI Wealth Management
+▪︎ University of Basel (Societal Challenges)
 
 # University Education 
 
@@ -24,6 +24,7 @@
 
 # Swiss Equity Portfolio™️
 
+▪︎ CFI Wealth Management
 
 
 
