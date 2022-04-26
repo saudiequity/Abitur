@@ -2,12 +2,12 @@
 
 ▪︎ Justus-Knecht Gymnasium Bruchsal
 
-▪︎ Kings College London (Business Management)
+▪︎ ABB Academy
 
 
 # Business Management
 
-▪︎ ABB Academy
+▪︎ Kings College London (Business Management)
 
 ▪︎ University of Basel (Societal Challenges)
 
