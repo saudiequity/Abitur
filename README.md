@@ -12,7 +12,8 @@
 
 ▪︎ FH Joannum & Cracow University of Economics (Intrapreneurship)
 
-▪︎ University of Basel (Societal Challenges)
+▪︎ ESMT Berlin Executive MBA (Technologie, Strategie und Leadership)
+
 
 # University Education 
 
@@ -20,7 +21,7 @@
 
 ▪︎ Grenoble Ecole De Management (International Relations)
 
-▪︎ ESMT Berlin Executive MBA (Technologie, Strategie und Leadership)
+▪︎ University of Basel (Societal Challenges)
 
 # Swiss Equity Portfolio™️
 
