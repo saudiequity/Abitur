@@ -2,6 +2,8 @@
 
 ▪︎ Justus-Knecht Gymnasium Bruchsal
 
+▪︎ Kings College London (Business Management)
+
 
 # Business Management
 
