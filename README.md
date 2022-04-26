@@ -8,6 +8,8 @@
 
 ▪︎ SAP Enterprise Architecture
 
+▪︎ OPENHPI Intrapreneurship
+
 # Business Management
 
 ▪︎ Kings College London (Business Management)
