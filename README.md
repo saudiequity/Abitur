@@ -10,7 +10,7 @@
 
 ▪︎ Kings College London (Business Management)
 
-▪︎ St. Gallen HSG (Business Intelligence)
+▪︎ CFI Wealth Management
 
 ▪︎ University of Basel (Societal Challenges)
 
@@ -24,7 +24,7 @@
 
 # Swiss Equity Portfolio™️
 
-▪︎ CFI Wealth Management
+
 
 
 
