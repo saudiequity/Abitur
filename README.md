@@ -19,16 +19,11 @@
 
 ▪︎ Hanken School of Economics (Private Banking)
 
-▪︎ Grenoble Ecole De Management (International Relations)
-
 ▪︎ University of Basel (Societal Challenges)
 
 # Swiss Equity Portfolio™️
 
 ▪ CFI Wealth Management
-
-
-
  
 ![Swiss Equity Portfolio](https://user-images.githubusercontent.com/95079463/163727001-ec82ed9d-01c8-483a-9ea6-583deac8b27b.png)
 
