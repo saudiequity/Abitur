@@ -39,7 +39,7 @@
 
 ▪︎ Computer Games: City of Brass (XBox), Halo Infinite (XBox)
 
-▪︎ Heimat: Geneve, Switzerland (Mercedes AMG)
+▪︎ Heimat: Bad Wildbad, BW, Germany (Mercedes AMG)
 
 ▪︎ Wohnort: Monte-Carlo, Monaco (Brabus Motorsport)
 
