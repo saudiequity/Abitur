@@ -19,6 +19,8 @@
 
 ▪︎ Hanken School of Economics (Private Banking)
 
+▪︎ St Gallen HSG (Enterprise Architecture)
+
 ▪︎ University of Basel (Societal Challenges)
 
 # Swiss Equity Portfolio™️
