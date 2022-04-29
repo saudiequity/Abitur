@@ -27,11 +27,11 @@
 
 ▪ CFI Wealth Management
  
-![Swiss Equity Portfolio](https://user-images.githubusercontent.com/95079463/163727001-ec82ed9d-01c8-483a-9ea6-583deac8b27b.png)
+![Swiss Equity Portfolio](https://user-images.githubusercontent.com/95079463/165912016-2034be7d-1fee-44ce-aa9e-ff7b36432359.png)
 
 ▪︎ Bank J. Safra Sarasin in Genf ( Nummer 15-174627-7  ) 
 
-▪︎ Bank J. Safra Sarasin in Zuerich, Switzerland (Oerlikon, Sulzer, Swiss Steel, Kingdom Holding Company)
+▪︎ Bank J. Safra Sarasin in Zuerich, Switzerland (Oerlikon, Sulzer, Swiss Steel, Kingdom Holding Company, Julius Baer Group Ltd.)
 
 ▪︎ Business contact: babermillennium@yahoo.com
 
