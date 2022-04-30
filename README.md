@@ -25,7 +25,7 @@
 
 # Swiss Equity Portfolio™️
 
-▪ Phd. Thesis about IT Challenges in Mergers and Acquisitions
+▪ Copenhagen Business School (Phd. Thesis about IT Challenges in Mergers and Acquisitions)
 
 ▪ CFI Wealth Management
  
