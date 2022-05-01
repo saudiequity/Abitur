@@ -41,7 +41,7 @@
 
 ▪︎ Hobbys : Radsport, Snowbike, Forestry, Modern Standard Arabic, Mixed Martial Arts
 
-▪︎ Computer Games: City of Brass (XBox), Halo Infinite (XBox)
+▪︎ Xbox Games: Hitman Agent 47 (XBox), Halo Infinite (XBox)
 
 ▪︎ Heimat: Bad Wildbad, BW, Germany (Mercedes AMG)
 
