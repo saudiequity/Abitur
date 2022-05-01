@@ -31,7 +31,7 @@
  
 ![Swiss Equity Portfolio](https://user-images.githubusercontent.com/95079463/165912016-2034be7d-1fee-44ce-aa9e-ff7b36432359.png)
 
-▪︎ Bank J. Safra Sarasin in Genf ( Nummer 15-174627-7  ) 
+▪︎ Bank J. Safra Sarasin in Genf ( Nummer 15-174627-7 , Steuerfrei ) 
 
 ▪︎ Bank J. Safra Sarasin in Zuerich, Switzerland (Oerlikon, Sulzer, Swiss Steel, Kingdom Holding Company, Julius Baer Group Ltd.)
 
