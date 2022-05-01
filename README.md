@@ -71,4 +71,6 @@
 ▪︎ Konstanz, Bodensee, BW, Germany
 
 
-▪︎ Gewerbeschein in Bruchsal (Geschäftspartner Julius Baer bank Group Ldt.)
+▪︎ Gewerbeschein in Bruchsal (Geschäftspartner Julius Baer bank Group Ldt.), in Bad Wildbad ( Geschäftspartner Kingdom Holding Company)
+
+▪︎ Business license in Monaco (Swiss Equity Portfolio), Cayman Islands (Geschäftspartner Bank J. Safra Sarasin)
