@@ -6,22 +6,13 @@
 
 ▪︎ SIEMENS Electrical Engineering
 
-▪︎ SAP Enterprise Architecture
-
 # Business Management
 
 ▪︎ Kings College London (Business Management)
 
-▪︎ FH Joannum & Cracow University of Economics (Intrapreneurship)
-
-▪︎ ESMT Berlin Executive MBA (Technologie, Strategie und Leadership)
-
-
 # University Education 
 
 ▪︎ Hanken School of Economics (Private Banking)
-
-▪︎ University of Basel (Societal Challenges)
 
 ▪ Copenhagen Business School (Phd. Thesis about IT Challenges in Mergers and Acquisitions)
 
