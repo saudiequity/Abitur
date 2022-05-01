@@ -19,13 +19,11 @@
 
 ▪︎ Hanken School of Economics (Private Banking)
 
-▪︎ St Gallen HSG (Enterprise Architecture)
-
 ▪︎ University of Basel (Societal Challenges)
 
-# Swiss Equity Portfolio™️
-
 ▪ Copenhagen Business School (Phd. Thesis about IT Challenges in Mergers and Acquisitions)
+
+# Swiss Equity Portfolio™️
 
 ▪ CFI Wealth Management
  
