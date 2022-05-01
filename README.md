@@ -10,6 +10,8 @@
 
 ▪︎ Kings College London (Business Management)
 
+▪︎ St Gallen HSG (Enterprise Business)
+
 # University Education 
 
 ▪︎ Hanken School of Economics (Private Banking)
