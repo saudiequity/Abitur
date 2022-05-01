@@ -71,4 +71,4 @@
 ▪︎ Konstanz, Bodensee, BW, Germany
 
 
-▪︎ Gewerbeschein in Bruchsal
+▪︎ Gewerbeschein in Bruchsal (Geschäftspartner Julius Baer bank Group Ldt.)
