@@ -2,8 +2,6 @@
 
 ▪︎ Justus-Knecht Gymnasium Bruchsal
 
-▪︎ ABB Academy
-
 ▪︎ SIEMENS Electrical Engineering
 
 # Business Management
