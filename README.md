@@ -14,7 +14,7 @@
 
 ▪︎ Hanken School of Economics (Private Banking)
 
-▪ Grenoble Ecole De Management (International Relations)
+▪ Grenoble Ecole De Management (Phd. Thesis about IT Challenges in Mergers and Acquisitions)
 
 # Swiss Equity Portfolio™️
 
