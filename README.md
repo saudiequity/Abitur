@@ -47,8 +47,6 @@
 
 ▪︎ Contact & Friendship with Lebanese, Egyptian, Spanish, Kasachstan
 
-▪︎ Schwager : Waheed Khan (London, UK)
-
 ▪︎ Amazon Web Services (Konto-ID: 3065-5829-7301)
 
 ▪︎ Beruf: Krankenfahrten Abrechnung mit CS DTA 
@@ -61,8 +59,7 @@
 
 ▪︎ Konstanz, Bodensee, BW, Germany
 
-
-▪︎ Gewerbeschein in Bruchsal, Bad Wildbad (Julius Baer bank Group Ldt.,
+▪︎ Gewerbeschein in Bad Wildbad (Julius Baer bank Group Ldt.,
 Kingdom Holding Company)
 
 ▪︎ Business license in Monaco (Bank J. Safra Sarasin)
