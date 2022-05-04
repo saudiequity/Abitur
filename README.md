@@ -22,7 +22,7 @@
  
 ![Swiss Equity Portfolio](https://user-images.githubusercontent.com/95079463/165912016-2034be7d-1fee-44ce-aa9e-ff7b36432359.png)
 
-▪︎ Bank J. Safra Sarasin in Genf, Cayman Island, Monaco ( Nummer 15-174627-7 ) 
+▪︎ Bank J. Safra Sarasin in Genf, Monaco ( Nummer 15-174627-7 ) 
 
 ▪︎ Bank J. Safra Sarasin in Zuerich, Switzerland (Oerlikon, Sulzer, Swiss Steel, Kingdom Holding Company, Julius Baer Group Ltd.)
 
@@ -57,11 +57,14 @@
 
 ▪︎ LinkedIn: [@ijaz-ahmad](https://www.linkedin.com/in/ijaz-ahmad-69677b13a/)
 
-▪︎ Musikgenre: 50 Cent G-Unit
+▪︎ Musikgenre: 50 Cent G-Unit, Techno 
 
 ▪︎ Konstanz, Bodensee, BW, Germany
 
 
-▪︎ Gewerbeschein in Bruchsal (Geschäftspartner Julius Baer bank Group Ldt.), in Bad Wildbad ( Geschäftspartner Kingdom Holding Company)
+▪︎ Gewerbeschein in Bruchsal, Bad Wildbad (Julius Baer bank Group Ldt.,
+Kingdom Holding Company)
 
-▪︎ Business license in Monaco (Bank J. Safra Sarasin), Cayman Islands (Swiss Equity Portfolio)
+▪︎ Business license in Monaco (Bank J. Safra Sarasin)
+
+▪︎ Privatbank auf Cayman Islands (Mercedes Benz Bank)
