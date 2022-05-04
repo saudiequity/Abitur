@@ -55,11 +55,4 @@
 
 ▪︎ Musikgenre: 50 Cent G-Unit, Techno 
 
-▪︎ Konstanz, Bodensee, BW, Germany
-
-▪︎ Gewerbeschein in Bad Wildbad (Julius Baer bank Group Ldt.,
-Kingdom Holding Company)
-
-▪︎ Business license in Monaco (Bank J. Safra Sarasin)
-
-▪︎ Privatbank auf Cayman Islands (Mercedes Benz Bank)
+▪︎ Konstanz, Bodensee, BW, Germany (Mercedes Benz Bank)
