@@ -45,7 +45,7 @@
 
 ▪︎ eMail Address: ijazbaber@magenta.de ▪︎ +4915128118401 
 
-▪︎ Contact & Friendship with Lebanese, Egyptian, Spanish, Kasachstan, Serbien
+▪︎ Contact & Friendship with Lebanese, Egyptian, Spanish, Kasachstan
 
 ▪︎ Schwager : Waheed Khan (London, UK)
 
