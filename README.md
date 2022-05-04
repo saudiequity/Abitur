@@ -55,4 +55,4 @@
 
 ▪︎ Musikgenre: 50 Cent G-Unit, Techno 
 
-▪︎ Konstanz, Bodensee, BW, Germany (Mercedes Benz Bank)
+▪︎ Konstanz, Bodensee, BW, Germany
