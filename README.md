@@ -20,15 +20,17 @@
  
 ![Swiss Equity Portfolio](https://user-images.githubusercontent.com/95079463/165912016-2034be7d-1fee-44ce-aa9e-ff7b36432359.png)
 
-▪︎ Bank J. Safra Sarasin in Monaco ( Nummer 15-174627-7 ) 
+▪︎ BNY Mellon in Switzerland ( Kingdom Holding Company ) 
 
-▪︎ Bank J. Safra Sarasin in Geneve, Switzerland (Oerlikon, Sulzer, Swiss Steel, Kingdom Holding Company, Julius Baer Group Ltd.)
+▪︎ Bank J. Safra Sarasin in Geneve, Switzerland (Oerlikon, Sulzer, Swiss Steel, Julius Baer Group Ltd.)
 
-▪︎ Business contact: ijazbaber@ik.me
+▪︎ Business contact: babermillennium@yahoo.com 
+
+• Kontonummer 15-174627-7
 
 # Residenz 
 
-▪︎ Hobbys : Radsport, Snowbike, Forestry, Modern Standard Arabic, Mixed Martial Arts
+▪︎ Hobbys : Mountainbikesport, Running Sports, Soccer, Football, NFL
 
 ▪︎ Xbox Games: Hitman Agent 47 (XBox), Halo Infinite (XBox)
 
@@ -41,7 +43,7 @@
 
 # Contact Details 
 
-▪︎ eMail Address: ijazbaber@magenta.de ▪︎ +4915128118401 
+▪︎ eMail Address: ijazbaber@ik.me ▪︎ +4915128118401 
 
 ▪︎ Contact & Friendship with Lebanese, Egyptian, Spanish, Kasachstan
 
