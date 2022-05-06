@@ -2,19 +2,19 @@
 
 ▪︎ Justus-Knecht Gymnasium Bruchsal
 
-▪︎ University of Basel (Societal Challenges)
+
 
 # Business Management
 
 ▪︎ Kings College London (Business Management)
 
-▪︎ St Gallen HSG (Enterprise Business)
-
+▪︎ University of Basel (Societal Challenges)
+ 
 # University Education 
 
 ▪︎ Hanken School of Economics (Private Banking)
 
-▪ Grenoble Ecole De Management (International Relations)
+▪︎ St Gallen HSG (Enterprise Business)
 
 # Swiss Equity Portfolio™️
 
