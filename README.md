@@ -8,7 +8,7 @@
 
 ▪︎ Kings College London (Business Management)
 
-▪︎ University of Basel (Societal Challenges)
+▪︎ University of Basel (Economics)
  
 # University Education 
 
