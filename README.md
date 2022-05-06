@@ -47,7 +47,7 @@
 
 ▪︎ Contact & Friendship with Lebanese, Egyptian, Spanish, Kasachstan
 
-▪︎ Amazon Web Services (Konto-ID: 3065-5829-7301)
+
 
 ▪︎ Pinterest: [@ijazbaberahmad](https://www.pinterest.de/ijazbaberahmad/)
 
