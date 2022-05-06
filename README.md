@@ -2,7 +2,7 @@
 
 ▪︎ Justus-Knecht Gymnasium Bruchsal
 
-▪︎ SIEMENS Electrical Engineering
+▪︎ University of Basel (Societal Challenges)
 
 # Business Management
 
