@@ -26,8 +26,6 @@
 
 ▪︎ Business contact: babermillennium@yahoo.com 
 
-• Kontonummer 15-174627-7
-
 # Residenz 
 
 ▪︎ Hobbys : Mountainbikesport, Running Sports, Soccer, Football, NFL
