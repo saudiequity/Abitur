@@ -14,7 +14,7 @@
 
 ▪︎ Hanken School of Economics (Private Banking)
 
-▪︎ St Gallen HSG (Enterprise Business)
+▪︎ St Gallen HSG (Business Analytics)
 
 # Swiss Equity Portfolio™️
 
