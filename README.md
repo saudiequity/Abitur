@@ -6,9 +6,7 @@
 
 # Business Management
 
-▪︎ Kings College London (Business Management)
-
-▪︎ University of Basel (Economics)
+▪︎ New York Institute of Finance
  
 # University Education 
 
