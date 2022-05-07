@@ -20,7 +20,7 @@
  
 ![Swiss Equity Portfolio](https://user-images.githubusercontent.com/95079463/165912016-2034be7d-1fee-44ce-aa9e-ff7b36432359.png)
 
-▪︎ BNY Mellon in Switzerland, Hongkong ( Kingdom Holding Company ) 
+▪︎ BNY Mellon in Switzerland, Hong Kong ( Kingdom Holding Company ) 
 
 ▪︎ Bank J. Safra Sarasin in Geneve, Switzerland (Oerlikon, Sulzer, Swiss Steel, Julius Baer Group Ltd.)
 
