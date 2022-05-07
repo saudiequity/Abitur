@@ -10,7 +10,7 @@
  
 # University Education 
 
-▪︎ St Gallen HSG (Business Analytics)
+▪︎ St Gallen HSG 
 
 # Swiss Equity Portfolio™️
 
