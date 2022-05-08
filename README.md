@@ -18,11 +18,11 @@
  
 ![Swiss Equity Portfolio](https://user-images.githubusercontent.com/95079463/165912016-2034be7d-1fee-44ce-aa9e-ff7b36432359.png)
 
-▪︎ BNY Mellon in Switzerland, Hong Kong ( Julius Baer Group Ltd. ) 
+▪︎ Wells Fargo in Sweden, Hong Kong (Julius Baer Group Ltd.) 
 
 ▪︎ Bank J. Safra Sarasin in Geneve, Switzerland, Dubai, UAE (Oerlikon, Sulzer, Swiss Steel, Kingdom Holding Company)
 
-▪︎ Wells Fargo (Julius Baer Group Ltd.)
+
 
 ▪︎ Business contact: babermillennium@yahoo.com 
 
