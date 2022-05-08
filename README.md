@@ -22,6 +22,8 @@
 
 ▪︎ Bank J. Safra Sarasin in Geneve, Switzerland (Oerlikon, Sulzer, Swiss Steel, Kingdom Holding Company)
 
+▪︎ Wells Fargo (Julius Baer Group Ltd.)
+
 ▪︎ Business contact: babermillennium@yahoo.com 
 
 # Residenz 
