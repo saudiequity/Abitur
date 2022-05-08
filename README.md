@@ -23,7 +23,8 @@
 ▪︎ Bank J. Safra Sarasin in Geneve, Switzerland, Dubai, UAE (Oerlikon, Sulzer, Swiss Steel, Kingdom Holding Company)
 
 
-▪︎ BNY Mellon in Switzerland 
+▪︎ BNY Mellon in Zuerich, Switzerland 
+
 ▪︎ Business contact: babermillennium@yahoo.com 
 
 # Residenz 
