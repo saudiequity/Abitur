@@ -54,4 +54,4 @@
 
 ▪︎ Musikgenre: 50 Cent G-Unit, Techno 
 
-▪︎ Konstanz, Bodensee, BW, Germany, Neubeckum, NRW, Germany
+▪︎ Konstanz, Bodensee, BW, Germany, Düsseldorf, NRW, Germany
