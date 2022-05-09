@@ -37,7 +37,7 @@
 
 ▪︎ Wohnort: Monte-Carlo, Monaco (Brabus Motorsport)
 
-▪︎ Geboren am 14.03.1986  (Schweizer Staatsbuergerschaft)
+▪︎ Geboren am 14.03.1986  (Monegassische Staatsbuergerschaft)
 
 
 # Contact Details 
