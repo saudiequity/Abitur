@@ -46,7 +46,7 @@
 
 ▪︎ Contact & Friendship with Lebanese, Egyptian, Spanish, Kasachstan
 
-
+▪︎ IHK Düsseldorf
 
 ▪︎ Pinterest: [@ijazbaberahmad](https://www.pinterest.de/ijazbaberahmad/)
 
