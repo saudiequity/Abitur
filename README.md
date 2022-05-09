@@ -44,7 +44,7 @@
 
 ▪︎ eMail Address: ijazbaber@ik.me ▪︎ +4915128118401 
 
-▪︎ Contact & Friendship with Lebanese, Egyptian, Spanish
+▪︎ Contact & Friendship with Lebanese, Egyptian, Spanish, Serbian
 
 ▪︎ IHK Düsseldorf
 
