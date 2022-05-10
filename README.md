@@ -6,15 +6,15 @@
 
 # Business Management
 
-▪︎ New York Institute of Finance
+▪︎ Kings College London
  
 # University Education 
 
-▪︎ St Gallen HSG 
+▪︎ Hanken School of Economics
 
 # Swiss Equity Portfolio™️
 
-▪ CFI Wealth Management
+▪ CFI Wealth Management / New York Institute of Finance
  
 ![Swiss Equity Portfolio](https://user-images.githubusercontent.com/95079463/165912016-2034be7d-1fee-44ce-aa9e-ff7b36432359.png)
 
