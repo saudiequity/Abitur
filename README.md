@@ -18,12 +18,15 @@
  
 ![Swiss Equity Portfolio](https://user-images.githubusercontent.com/95079463/165912016-2034be7d-1fee-44ce-aa9e-ff7b36432359.png)
 
-▪︎ Wells Fargo in Hong Kong, Düsseldorf, NRW, Germany (Julius Baer Group Ltd.) 
+▪︎ Wells Fargo in Hong Kong, Düsseldorf, NRW, Germany (Kingdom Holding Company) 
 
-▪︎ Bank J. Safra Sarasin in Geneve, Switzerland, Dubai, UAE (Oerlikon, Sulzer, Swiss Steel, Kingdom Holding Company)
+▪︎ Bank J. Safra Sarasin in Geneve, Switzerland, Dubai, UAE (Kingdom Holding Company)
+
+▪︎ Merill Lynch (Kingdom Holding Company)
+
+▪︎ BNY Mellon in Zuerich, Switzerland (Kingdom Holding Company)
 
 
-▪︎ BNY Mellon in Zuerich, Switzerland 
 
 ▪︎ Business contact: babermillennium@yahoo.com 
 
