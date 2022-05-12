@@ -24,7 +24,7 @@
 
 ▪︎ Merill Lynch in Hong Kong, Dubai (Kingdom Holding Company)
 
-▪︎ BNY Mellon in Saudi-Arabien, Dubai (Kingdom Holding Company)
+▪︎ BNY Mellon in Abu Dhabi, Dubai (Kingdom Holding Company)
 
 
 
