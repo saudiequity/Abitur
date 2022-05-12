@@ -22,7 +22,7 @@
 
 ▪︎ Bank J. Safra Sarasin in Monte-Carlo, Monaco, Dubai, UAE (Kingdom Holding Company)
 
-▪︎ Merill Lynch in Dubai (Kingdom Holding Company)
+▪︎ Merill Lynch on Cayman Island (Kingdom Holding Company)
 
 ▪︎ BNY Mellon in Saudi-Arabien (Kingdom Holding Company)
 
