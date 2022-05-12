@@ -20,11 +20,11 @@
 
 ▪︎ Wells Fargo in Hong Kong, Düsseldorf, NRW, Germany (Kingdom Holding Company) 
 
-▪︎ Bank J. Safra Sarasin in Geneve, Switzerland, Dubai, UAE (Kingdom Holding Company)
+▪︎ Bank J. Safra Sarasin in Monte-Carlo, Monaco, Dubai, UAE (Kingdom Holding Company)
 
-▪︎ Merill Lynch (Kingdom Holding Company)
+▪︎ Merill Lynch in Dubai (Kingdom Holding Company)
 
-▪︎ BNY Mellon in Zuerich, Switzerland (Kingdom Holding Company)
+▪︎ BNY Mellon in Saudi-Arabien (Kingdom Holding Company)
 
 
 
