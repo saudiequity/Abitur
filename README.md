@@ -19,6 +19,8 @@
 
 ▪︎ Bank J. Safra Sarasin in Monte-Carlo, Monaco, Dubai (Kingdom Holding Company)
 
+▪︎ Quintet Privatbank in Luxemburg
+
 ▪︎ Business contact: babermillennium@yahoo.com 
 
 # Residenz 
