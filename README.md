@@ -4,8 +4,7 @@
 
 # Business Management
 
-▪︎ St Gallen HSG
-
+▪︎ International Business Management Institute
 
 
 # University Education 
