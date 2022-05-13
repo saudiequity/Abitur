@@ -2,8 +2,6 @@
 
 ▪︎ Justus-Knecht Gymnasium Bruchsal
 
-
-
 # Business Management
 
 ▪︎ Kings College London
@@ -14,7 +12,7 @@
 
 # Swiss Equity Portfolio™️
 
-▪ CFI Wealth Management / New York Institute of Finance 
+▪ CFI Wealth Management 
  
 ![Swiss Equity Portfolio](https://user-images.githubusercontent.com/95079463/165912016-2034be7d-1fee-44ce-aa9e-ff7b36432359.png)
 
