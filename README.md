@@ -56,4 +56,4 @@
 
 ▪︎ Musikgenre: 50 Cent G-Unit, Techno 
 
-▪︎ Konstanz, Bodensee, BW, Germany, Düsseldorf, NRW, Germany
+
