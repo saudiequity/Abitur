@@ -20,6 +20,8 @@
 
 ▪︎ Bank J. Safra Sarasin in Monte-Carlo, Monaco, Dubai (Kingdom Holding Company)
 
+▪︎ BNY Mellon in Saudi-Arabien, Dubai (Kingdom Holding Company)
+
 ▪︎ Business contact: babermillennium@yahoo.com 
 
 # Residenz 
