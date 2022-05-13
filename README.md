@@ -2,10 +2,12 @@
 
 ▪︎ Justus-Knecht Gymnasium Bruchsal
 
+# Business Management
+
+▪︎ St Gallen HSG
 
 
 
- 
 # University Education 
 
 ▪︎ Hanken School of Economics
