@@ -22,6 +22,8 @@
 
 ▪︎ BNY Mellon in Saudi-Arabien, Dubai (Kingdom Holding Company)
 
+▪︎ Merrill Lynch on Cayman Island, Dubai (Kingdom Holding Company)
+
 ▪︎ Business contact: babermillennium@yahoo.com 
 
 # Residenz 
