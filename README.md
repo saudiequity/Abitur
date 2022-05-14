@@ -28,7 +28,7 @@
 
 # Residenz 
 
-▪︎ Hobbys : Boxing, Mixed Martial Arzs, UFC Training, Calisthenics
+▪︎ Hobbys : Boxing, Mixed Martial Arts, UFC Training, Calisthenics
 
 ▪︎ Xbox Games: Hitman Agent 47 (XBox), Halo Infinite (XBox)
 
