@@ -16,13 +16,13 @@
  
 ![Swiss Equity Portfolio](https://user-images.githubusercontent.com/95079463/165912016-2034be7d-1fee-44ce-aa9e-ff7b36432359.png)
 
-▪︎ Wells Fargo in Hong Kong, Dubai, UAE (Kingdom Holding Company)
+▪︎ Wells Fargo in Hong Kong (Kingdom Holding Company)
 
-▪︎ Bank J. Safra Sarasin in Monte-Carlo, Monaco, Dubai (Kingdom Holding Company)
+▪︎ Bank J. Safra Sarasin in Monte-Carlo, Monaco (Kingdom Holding Company)
 
-▪︎ BNY Mellon in Saudi-Arabien, Dubai (Kingdom Holding Company)
+▪︎ BNY Mellon in Saudi-Arabien (Kingdom Holding Company)
 
-▪︎ Merrill Lynch on Cayman Island, Dubai (Kingdom Holding Company)
+▪︎ Merrill Lynch on Cayman Island (Kingdom Holding Company)
 
 ▪︎ Business contact: babermillennium@yahoo.com 
 
