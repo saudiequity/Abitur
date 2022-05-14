@@ -24,7 +24,7 @@
 
 ▪︎ Merrill Lynch on Cayman Island (Kingdom Holding Company)
 
-▪︎ Business contact: babermillennium@yahoo.com 
+▪︎ Business contact: babermillennium@yahoo.com / babermillennium@hotmail.com
 
 # Residenz 
 
