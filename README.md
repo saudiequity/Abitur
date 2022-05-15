@@ -18,7 +18,7 @@
 
 ▪︎ Bank J. Safra Sarasin in Monte-Carlo, Monaco (Kingdom Holding Company)
 
-▪︎ Business contact: babermillennium@yahoo.com / babermillenn
+▪︎ Business contact: babermillennium@yahoo.com 
 
 # Residenz 
 
