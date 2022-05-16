@@ -16,7 +16,7 @@
  
 ![Swiss Equity Portfolio](https://user-images.githubusercontent.com/95079463/165912016-2034be7d-1fee-44ce-aa9e-ff7b36432359.png)
 
-▪︎ Bank J. Safra Sarasin in Monte-Carlo, Monaco (Kingdom Holding Company)
+▪︎ Bank J. Safra Sarasin on Cayman Islands (Kingdom Holding Company)
 
 ▪︎ Business contact: babermillennium@yahoo.com 
 
@@ -28,9 +28,9 @@
 
 ▪︎ Heimat: Bad Wildbad, BW, Germany (Mercedes AMG)
 
-▪︎ Wohnort: Monte-Carlo, Monaco (Brabus Motorsport)
+▪︎ Wohnort: Riad, Saudi-Arabien, Jeddah (Brabus Motorsport)
 
-▪︎ Geboren am 14.03.1986  (Monegassische Staatsbuergerschaft)
+▪︎ Geboren am 14.03.1986  (Saudi Citizenship)
 
 
 # Contact Details 
