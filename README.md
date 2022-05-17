@@ -16,7 +16,7 @@
  
 ![Swiss Equity Portfolio](https://user-images.githubusercontent.com/95079463/165912016-2034be7d-1fee-44ce-aa9e-ff7b36432359.png)
 
-▪︎ Bank J. Safra Sarasin on Cayman Islands (Kingdom Holding Company)
+▪︎ Quintet Private Bank (Kingdom Ho
 
 ▪︎ Business contact: babermillennium@yahoo.com 
 
