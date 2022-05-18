@@ -18,10 +18,7 @@
 
 ▪︎ Quintet Private Bank in Luxemburg (Kingdom Holding Company)
 
-▪︎ Bank J. Safra Sarasin (Swiss Equity)
-
 ▪︎ Baumann & Cie (Swiss Equity)
-
 
 ▪︎ Business contact: babermillennium@yahoo.com 
 
