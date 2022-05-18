@@ -20,6 +20,8 @@
 
 ▪︎ Baumann & Cie (Swiss Equity)
 
+▪︎ Bank J. Safra Sarasin (Swiss Banks)
+
 ▪︎ Business contact: babermillennium@yahoo.com 
 
 # Residenz 
