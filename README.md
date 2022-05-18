@@ -22,7 +22,7 @@
 
 ▪︎ Bank J. Safra Sarasin (Swiss Banks)
 
-▪︎ Business contact: babermillennium@yahoo.com 
+▪︎ Business contact: ijazbaberahmad@yahoo.com 
 
 # Residenz 
 
