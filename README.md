@@ -39,7 +39,7 @@
 
 # Contact Details 
 
-▪︎ eMail Address: ijazbaber@ik.me ▪︎ +4915128118401 
+▪︎ eMail Address: babermillennium@yahoo.com ▪︎ +4915128118401 
 
 ▪︎ Contact & Friendship with Lebanese, Egyptian, Spanish, Serbian
 
