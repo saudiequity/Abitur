@@ -12,11 +12,10 @@
  
 ![Swiss Equity Portfolio](https://user-images.githubusercontent.com/95079463/165912016-2034be7d-1fee-44ce-aa9e-ff7b36432359.png)
 
-▪︎ Wells Fargo in Hong Kong (Kingdom Holding Company)
 
 ▪︎ Citibank in Karachi (Swiss Equity)
 
-▪︎ Bank J. Safra Sarasin in Berlin (Swiss Banks)
+▪︎ Bank J. Safra Sarasin in Berlin (Kingdom Holding Company)
 
 ▪︎ Business contact: ijazbaberahmad@yahoo.com 
 
