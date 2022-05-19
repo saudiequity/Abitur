@@ -14,7 +14,7 @@
 
 ▪︎ Quintet Private Bank in Luxemburg (Kingdom Holding Company)
 
-▪︎ Baumann & Cie (Swiss Equity)
+▪︎ Citibank in Karachi (Swiss Equity)
 
 ▪︎ Bank J. Safra Sarasin in Berlin (Swiss Banks)
 
