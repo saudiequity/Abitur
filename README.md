@@ -2,13 +2,9 @@
 
 ▪︎ Justus-Knecht Gymnasium Bruchsal
 
-# Business Management
+# University Education
 
 ▪︎ International Business Management Institute
-
-# University Education 
-
-▪︎ Hanken School of Economics
 
 # Swiss Equity Portfolio™️
 
@@ -20,7 +16,7 @@
 
 ▪︎ Baumann & Cie (Swiss Equity)
 
-▪︎ Bank J. Safra Sarasin (Swiss Banks)
+▪︎ Bank J. Safra Sarasin in Berlin (Swiss Banks)
 
 ▪︎ Business contact: ijazbaberahmad@yahoo.com 
 
