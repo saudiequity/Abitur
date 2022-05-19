@@ -42,7 +42,7 @@
 
 ▪︎ LinkedIn: [@ijaz-ahmad](https://www.linkedin.com/in/ijaz-ahmad-69677b13a/)
 
-▪︎ Musikgenre: Techno 
+▪︎ Musikgenre: 50 Cent G-Unit, Techno 
 
 
 
