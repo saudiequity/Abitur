@@ -17,7 +17,7 @@
 
 ▪︎ BNY Mellon in Berlin (Kingdom Holding Company)
 
-▪︎ Business Contact: ijazbaber@magenta.de
+▪︎ Business Contact: ijazbaberahmad@outlook.de
 
 # Residenz 
 
@@ -34,7 +34,7 @@
 
 # Contact Details 
 
-▪︎ eMail Address: ijazbaber@ik.me ▪︎ +4915128118401 
+▪︎ eMail Address: ijazbaber@magenta.de ▪︎ +4915128118401 
 
 ▪︎ Contact & Friendship with Lebanese, Egyptian, Spanish, Serbian
 
