@@ -15,7 +15,7 @@
 
 ▪︎ Citibank in Karachi (Swiss Equity)
 
-▪︎ Bank J. Safra Sarasin in Berlin (Kingdom Holding Company)
+▪︎ BNY Mellon in Berlin (Kingdom Holding Company)
 
 ▪︎ Business contact: ijazbaberahmad@yahoo.com 
 
