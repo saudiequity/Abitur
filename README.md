@@ -12,7 +12,7 @@
  
 ![Swiss Equity Portfolio](https://user-images.githubusercontent.com/95079463/165912016-2034be7d-1fee-44ce-aa9e-ff7b36432359.png)
 
-▪︎ Quintet Private Bank in Luxemburg (Kingdom Holding Company)
+▪︎ Wells Fargo in Dubai (Kingdom Holding Company)
 
 ▪︎ Citibank in Karachi (Swiss Equity)
 
