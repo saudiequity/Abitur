@@ -15,7 +15,7 @@
 
 ▪︎ Citibank in Karachi (Swiss Equity)
 
-▪︎ Julius Baer in Dubai (Kingdom Holding Company)
+▪︎ Julius Baer in Dubai (Swiss Equity)
 
 ▪︎ Business Contact: ijazbaberahmad@outlook.de
 
