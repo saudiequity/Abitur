@@ -34,7 +34,7 @@
 
 # Contact Details 
 
-▪︎ eMail Address: ijazbaber@magenta.de ▪︎ +4915128118401 
+▪︎ eMail Address: ijazbaberahmad@yahoo.com ▪︎ +4915128118401 
 
 ▪︎ Contact & Friendship with Lebanese, Egyptian, Spanish, Serbian
 
