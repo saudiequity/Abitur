@@ -19,7 +19,7 @@
 
 ▪︎ Quintet Private Bank in Luxemburg (Kingdom Holding Company)
 
-▪︎ Bank J Safra Sarasin in München (Swiss Equity)
+▪︎ Bank J Safra Sarasin in München (Kingdom Holding Company)
 
 ▪︎ Business Contact: ijazbaberahmad@outlook.de
 
