@@ -15,7 +15,11 @@
 
 ▪︎ Citibank in Karachi (Swiss Equity)
 
-▪︎ Julius Baer in Dubai (Swiss Equity)
+▪︎ Julius Baer in Berlin (Swiss Equity)
+
+▪︎ Quintet Private Bank in Luxemburg (Kingdom Holding Company)
+
+▪︎ Bank J Safra Sarasin in München (Swiss Equity)
 
 ▪︎ Business Contact: ijazbaberahmad@outlook.de
 
