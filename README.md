@@ -15,7 +15,7 @@
 
 ▪︎ Citibank in Karachi (Swiss Equity)
 
-▪︎ Quintet Private Bank in Luxemburg (Kingdom Holding Company)
+▪︎ Julius Baer in Dubai (Kingdom Holding Company)
 
 ▪︎ Business Contact: ijazbaberahmad@outlook.de
 
