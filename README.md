@@ -15,7 +15,7 @@
 
 ▪︎ Citibank in Karachi (Swiss Equity)
 
-▪︎ BNY Mellon in Berlin (Kingdom Holding Company)
+▪︎ Quintet Private Bank in Luxemburg (Kingdom Holding Company)
 
 ▪︎ Business Contact: ijazbaberahmad@outlook.de
 
