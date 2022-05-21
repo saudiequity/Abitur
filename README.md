@@ -19,7 +19,7 @@
 
 ▪︎ Quintet Private Bank in Berlin (Kingdom Holding Company)
 
-▪︎ Bank J Safra Sarasin in Hong Kong (Kingdom Holding Company)
+▪︎ Bank J Safra Sarasin in Doha, Qatar (Kingdom Holding Company)
 
 ▪︎ Business Contact: ijazbaberahmad@outlook.de
 
