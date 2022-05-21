@@ -19,7 +19,7 @@
 
 ▪︎ Quintet Private Bank in München (Kingdom Holding Company)
 
-▪︎ Bank J Safra Sarasin in Frankfurt (Kingdom Holding Company)
+▪︎ Bank J Safra Sarasin in Fr (Kingdom Holding Company)
 
 ▪︎ Business Contact: ijazbaberahmad@outlook.de
 
