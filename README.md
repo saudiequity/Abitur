@@ -17,9 +17,9 @@
 
 ▪︎ Julius Baer in Berlin (Swiss Equity)
 
-▪︎ Quintet Private Bank in Luxemburg (Kingdom Holding Company)
+▪︎ Quintet Private Bank in München (Kingdom Holding Company)
 
-▪︎ Bank J Safra Sarasin in München (Kingdom Holding Company)
+▪︎ Bank J Safra Sarasin in Frankfurt (Kingdom Holding Company)
 
 ▪︎ Business Contact: ijazbaberahmad@outlook.de
 
