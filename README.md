@@ -17,7 +17,7 @@
 
 ▪︎ Julius Baer in Berlin (Swiss Equity)
 
-▪︎ Quintet Private Bank in Kopenhagen, Denmark(Kingdom Holding Company)
+▪︎ Quintet Private Bank in München (Kingdom Holding Company)
 
 ▪︎ Bank J Safra Sarasin in Doha, Qatar (Kingdom Holding Company)
 
