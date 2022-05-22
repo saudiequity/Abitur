@@ -31,9 +31,9 @@
 
 ▪︎ Heimat: Bad Wildbad, BW, Germany (Mercedes AMG)
 
-▪︎ Wohnort: Riad, Saudi-Arabien, Jeddah (Brabus Motorsport)
+▪︎ Wohnort: Doha, Qatar (Brabus Motorsport)
 
-▪︎ Geboren am 14.03.1986  (Saudi Citizenship)
+▪︎ Geboren am 14.03.1986  (Qatar Citizenship)
 
 
 # Contact Details 
