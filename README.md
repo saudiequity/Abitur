@@ -16,7 +16,9 @@
 
 ▪ Quintet Private Bank in München (Kingdom Holding Company)
 
-▪︎ Business Contact: ijazbaberahmad@outlook.de
+▪ Bank J. Safra Sarasin in Doha, Katar (Swiss Industry)
+
+▪︎ Business Contact: ijazbaberahmad@yahoo.com
 
 # Residenz 
 
@@ -33,7 +35,7 @@
 
 # Contact Details 
 
-▪︎ eMail Address: ijazbaberahmad@yahoo.com ▪︎ +4915128118401 
+▪︎ eMail Address: ijazbaberahmad@outlook.de ▪︎ +4915128118401 
 
 ▪︎ Contact & Friendship with Lebanese, Egyptian, Spanish, Serbian
 
