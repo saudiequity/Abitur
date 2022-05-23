@@ -16,7 +16,7 @@
 
 ▪ Quintet Private Bank in München (Kingdom Holding Company)
 
-▪︎ Bank J Safra Sarasin in Doha, Qatar (Swiss Banks)
+▪︎ Bank J Safra Sarasin in Doha, Qatar (Swiss Equity)
 
 ▪︎ Business Contact: ijazbaberahmad@outlook.de
 
