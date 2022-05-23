@@ -12,9 +12,11 @@
  
 ![Swiss Equity Portfolio](https://user-images.githubusercontent.com/95079463/165912016-2034be7d-1fee-44ce-aa9e-ff7b36432359.png)
 
+▪ Citibank in Karachi, Pakistan (Julius Baer Group Ltd.)
+
 ▪ Quintet Private Bank in München (Kingdom Holding Company)
 
-▪ Bank J. Safra Sarasin in Doha, Katar (Swiss Equity)
+▪ Bank J. Safra Sarasin in Doha, Katar (Swiss Industry)
 
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com
 
