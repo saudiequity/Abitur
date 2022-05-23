@@ -14,9 +14,7 @@
 
 ▪ Citibank in Karachi, Pakistan (Julius Baer Group Ltd.)
 
-▪ Julius Baer Bank in Berlin (Kingdom Holding Company)
-
-▪ Bank J. Safra Sarasin in Doha, Katar (Swiss Industry)
+▪ Bank J. Safra Sarasin in Doha, Katar (Kingdom Holding Company)
 
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com
 
