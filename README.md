@@ -26,9 +26,9 @@
 
 ▪︎ Xbox Games: Hitman Agent 47 (XBox), Halo Infinite (XBox)
 
-▪︎ Heimat: Bad Wildbad, BW, Germany (Mercedes AMG)
+▪︎ Heimat: Bad Wildbad, BW, Germany (Mercedes AMG, Brabus )
 
-▪︎ Wohnort: Doha, Qatar (Brabus Motorsport)
+▪︎ Wohnort: Doha, Qatar (Grand Prix Qatar)
 
 ▪︎ Geboren am 14.03.1986  (Qatar Citizenship)
 
