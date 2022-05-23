@@ -12,6 +12,8 @@
  
 ![Swiss Equity Portfolio](https://user-images.githubusercontent.com/95079463/165912016-2034be7d-1fee-44ce-aa9e-ff7b36432359.png)
 
+▪ BNY Mellon in Switzerland (Sulzer Ltd)
+
 ▪ Citibank in Karachi, Pakistan (Julius Baer Group Ltd.)
 
 ▪ Quintet Private Bank in München (Kingdom Holding Company)
@@ -28,9 +30,9 @@
 
 ▪︎ Heimat: Bad Wildbad, BW, Germany (Mercedes AMG, Brabus )
 
-▪︎ Wohnort: Doha, Qatar (Grand Prix Qatar)
+▪︎ Wohnort: Riad, Saudi-Arabien, Jeddah (Jeddah Motorsport)
 
-▪︎ Geboren am 14.03.1986  (Qatar Citizenship)
+▪︎ Geboren am 14.03.1986  (Saudi Citizenship)
 
 
 # Contact Details 
