@@ -14,7 +14,10 @@
 
 ▪ Citibank in Karachi, Pakistan (Julius Baer Group Ltd.)
 
-▪ Bank J. Safra Sarasin in Doha, Katar (Kingdom Holding Company)
+
+▪ Quintet Private Bank in München (Kingdom Holding Company)
+
+▪ Bank J. Safra Sarasin in Doha, Katar (Swiss Equity)
 
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com
 
