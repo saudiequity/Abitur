@@ -14,7 +14,7 @@
 
 ▪ Citibank in Karachi, Pakistan (Julius Baer Group Ltd.)
 
-▪ Quintet Private Bank in München (Kingdom Holding Company)
+▪ Julius Baer Bank in Berlin Münc(Kingdom Holding Company)
 
 ▪ Bank J. Safra Sarasin in Doha, Katar (Swiss Industry)
 
