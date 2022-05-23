@@ -32,7 +32,7 @@
 
 ▪︎ Wohnort: Riad, Saudi-Arabien, Jeddah (Jeddah Motorsport)
 
-▪︎ Geboren am 14.03.1986  (Saudi Citizenship)
+▪︎ Geboren am 14.03.1986  (Qatar Citizenship)
 
 
 # Contact Details 
