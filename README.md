@@ -20,7 +20,7 @@
 
 ▪ Julius Baer Bank in Berlin (Swiss Industry)
 
-▪ Quintet Private Bank in Luxemburg (Swiss Banks)
+▪ Quintet Private Bank in München (Swiss Banks)
 
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com
 
