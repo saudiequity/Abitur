@@ -16,11 +16,11 @@
 
 
 
-▪ Bank J Safra Sarasin in Doha, Katar (Swiss Equity)
+▪ Bank J Safra Sarasin in Berlin (Swiss Equity)
 
 ▪ Julius Baer Bank in Berlin (Swiss Industry)
 
-▪ Quintet Private Bank in München (Swiss Banks)
+▪ Quintet Private Bank in Berlin (Swiss Banks)
 
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com
 
