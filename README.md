@@ -14,6 +14,8 @@
 
 ▪ Citibank in Karachi, Pakistan (Julius Baer Group Ltd.)
 
+▪ BNY Mellon in Switzerland (Julius Baer Group Ltd)
+
 ▪ Bank J Safra Sarasin in Doha, Katar (Swiss Equity)
 
 ▪ Julius Baer Bank in Berlin (Swiss Industry)
