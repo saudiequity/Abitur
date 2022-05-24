@@ -12,15 +12,9 @@
  
 ![Swiss Equity Portfolio](https://user-images.githubusercontent.com/95079463/165912016-2034be7d-1fee-44ce-aa9e-ff7b36432359.png)
 
+▪ Bank J Safra Sarasin in Berlin 
 
-
-
-
-▪ Bank J Safra Sarasin in Berlin (Swiss Equity)
-
-▪ Julius Baer Bank in Berlin (Swiss Industry)
-
-▪ Quintet Private Bank in Berlin (Swiss Banks)
+▪ Quintet Private Bank in Berlin 
 
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com
 
