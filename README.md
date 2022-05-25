@@ -39,7 +39,8 @@
 
 ▪︎ LinkedIn: [@ijaz-ahmad](https://www.linkedin.com/in/ijaz-ahmad-69677b13a/)
 
-▪︎ Tiktok: @ijazbaberahmad
+▪︎ Tiktok: [@ijazbaberahmad](https://www.tiktok.com/@ijazbaberahmad/)
+
 
 
 ▪︎ Musikgenre: 50 Cent G-Unit, Techno 
