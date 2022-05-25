@@ -14,7 +14,7 @@
 
 ▪ BNY Mellon in Abu Dhabi, UAE
 
-▪ Bank J Safra Sarasin in Genevé
+▪ Julius Baer Bank in Genevé
 
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com
 
