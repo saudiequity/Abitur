@@ -14,8 +14,6 @@
 
 ▪ Bank J Safra Sarasin in Genevé
 
-▪ Quintet Private Bank in Genevé
-
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com
 
 # Residenz 
