@@ -14,7 +14,6 @@
 
 ▪ BNY Mellon in Abu Dhabi, UAE
 
-▪ Julius Baer Bank in Genevé
 
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com
 
