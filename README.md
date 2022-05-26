@@ -14,6 +14,7 @@
 
 ▪ Julius Baer Bank in Hong Kong
 
+▪ Bank J Safra Sarasin in Hong Kong
 
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com
 
