@@ -12,11 +12,11 @@
  
 ![Swiss Equity Portfolio](https://user-images.githubusercontent.com/95079463/165912016-2034be7d-1fee-44ce-aa9e-ff7b36432359.png)
 
-▪ Julius Baer Bank in Hong Kong
+▪ Julius Baer Bank in Hong Kong (Swiss Equity)
 
-▪ Bank J Safra Sarasin in Hong Kong
+▪ Bank J Safra Sarasin in Hong Kong (Kingdom Holding Company)
 
-▪ Citibank in Karachi, Pakistan 
+▪ Citibank in Karachi, Pakistan (Julius Baer Group Ltd.)
 
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com
 
