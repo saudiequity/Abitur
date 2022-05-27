@@ -12,7 +12,7 @@
  
 ![Swiss Equity Portfolio](https://user-images.githubusercontent.com/95079463/165912016-2034be7d-1fee-44ce-aa9e-ff7b36432359.png)
 
-▪ Julius Baer Bank in Dubai (Swiss Equity)
+▪ Julius Baer Bank in Stuttgart (Swiss Equity)
 
 ▪ Bank J Safra Sarasin in Monaco, Genevé (Kingdom Holding Company)
 
