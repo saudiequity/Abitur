@@ -12,15 +12,13 @@
  
 ![Swiss Equity Portfolio](https://user-images.githubusercontent.com/95079463/165912016-2034be7d-1fee-44ce-aa9e-ff7b36432359.png)
 
-▪ Julius Baer Bank in St. Gallen (Swiss Equity)
 
-▪ Bank J Safra Sarasin in Dubai (Kingdom Holding Company)
 
 ▪ Citibank in Karachi, Pakistan (Julius Baer Group Ltd.)
 
 ▪ Merrill Lynch on Cayman Islands (Kingdom Holding Company)
 
-▪ BNY Mellon in Zürich (Swiss Equity)
+▪ BNY Mellon in Abu Dhabi (Swiss Equity)
 
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com
 
