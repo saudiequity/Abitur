@@ -16,6 +16,8 @@
 
 ▪ Bank J Safra Sarasin in Hong Kong
 
+▪ Citibank in Karachi, Pakistan 
+
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com
 
 # Residenz 
