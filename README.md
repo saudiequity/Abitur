@@ -14,7 +14,7 @@
 
 ▪ Julius Baer Bank in St. Gallen (Swiss Equity)
 
-▪ Bank J Safra Sarasin in Monaco, Genevé (Kingdom Holding Company)
+▪ Bank J Safra Sarasin in Dubai (Kingdom Holding Company)
 
 ▪ Citibank in Karachi, Pakistan (Julius Baer Group Ltd.)
 
