@@ -18,6 +18,10 @@
 
 ▪ Citibank in Karachi, Pakistan (Julius Baer Group Ltd.)
 
+▪ Merrill Lynch on Cayman Islands (Kingdom Holding Company)
+
+▪ BNY Mellon in Zürich (Swiss Equity)
+
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com
 
 # Residenz 
