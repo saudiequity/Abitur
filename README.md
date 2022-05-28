@@ -14,11 +14,11 @@
 
 
 
-▪ Citibank in Karachi, Pakistan (Julius Baer Group Ltd.)
+▪ Bank J Safra Sarasin in Dubai (Swiss Equity)
 
 ▪ Merrill Lynch on Cayman Islands (Kingdom Holding Company)
 
-▪ BNY Mellon in Abu Dhabi (Swiss Equity)
+▪ BNY Mellon in Abu Dhabi (Julius Baer Group Ltd.)
 
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com
 
