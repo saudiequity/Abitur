@@ -16,7 +16,7 @@
 
 ▪ Merrill Lynch in Riad (Julius Baer Group Ltd.)
 
-▪ BNY Mellon in Dubai (Julius Baer Group Ltd.)
+▪ BNY Mellon in Abu Dhabi (Julius Baer Group Ltd.)
 
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com
 
