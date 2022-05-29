@@ -16,7 +16,11 @@
 
 ▪ Merrill Lynch in Riad (Julius Baer Group Ltd.)
 
-▪ BNY Mellon in Abu Dhabi (Julius Baer Group Ltd.)
+▪ BNY Mellon in Zürich (Julius Baer Group Ltd.)
+
+▪ Commerzbank in Dubai (Swiss Equity)
+
+▪ Mercedes Benz in on Cayman Islands (Kingdom Holding Company)
 
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com
 
