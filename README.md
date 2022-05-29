@@ -22,17 +22,6 @@
 
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com
 
-# Residenz 
-
-▪︎ Hobbys : Boxing, Mixed Martial Arts, UFC Training, Calisthenics
-
-▪︎ Xbox Games: Hitman Agent 47 (XBox), Halo Infinite (XBox)
-
-▪︎ Heimat: Bad Wildbad, BW, Germany (Mercedes AMG, Brabus )
-
-▪︎ Geboren am 14.03.1986  
-
-
 # Contact Details 
 
 ▪︎ eMail Address: ijazbaberahmad@t-online.de ▪︎ +4915128118401 
