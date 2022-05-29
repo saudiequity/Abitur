@@ -20,7 +20,9 @@
 
 ▪ Mercedes Benz Bank on Cayman Islands (Kingdom Holding Company)
 
-▪︎ Business Contact: ijazbaberahmad@yahoo.com
+▪︎ Business Contact: ijazbaberahmad@yahoo.com (E-Commerce Startup)
+
+
 
 # Contact Details 
 
@@ -36,7 +38,7 @@
 
 ▪︎ Musikgenre:  Techno 
 
-▪︎ E-Commerce Startup Manager
+
 
 
 
