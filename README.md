@@ -45,7 +45,7 @@
 
 ▪︎ Musikgenre:  Techno 
 
-▪︎ E-Commerce Startup Entrepreneur
+▪︎ E-Commerce Startup Manager
 
 
 
