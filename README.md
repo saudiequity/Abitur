@@ -32,7 +32,8 @@
 
 ▪︎ Heimat: Bad Wildbad, BW, Germany (Mercedes AMG, Brabus )
 
-▪︎ Wohnort: München, Bavaria (ADAC Motorsport)
+
+
 
 ▪︎ Geboren am 14.03.1986  
 
