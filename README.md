@@ -12,11 +12,11 @@
  
 ![Swiss Equity Portfolio](https://user-images.githubusercontent.com/95079463/165912016-2034be7d-1fee-44ce-aa9e-ff7b36432359.png)
 
-▪ Goldman Sachs Private Wealth Management in Monaco (Swiss Equity)
+▪ Goldman Sachs Private Wealth Management in Monaco (Julius Baer Group Ltd.)
 
-▪ Merrill Lynch on Cayman Islands (Kingdom Holding Company)
 
-▪ BNY Mellon in Abu Dhabi (Julius Baer Group Ltd.)
+
+▪ BNY Mellon in Abu Dhabi (Kingdom Holding Company)
 
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com
 
