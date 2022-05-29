@@ -20,7 +20,7 @@
 
 ▪ Commerzbank in Dubai (Swiss Equity)
 
-▪ Mercedes Benz in on Cayman Islands (Kingdom Holding Company)
+▪ Mercedes Benz Bank on Cayman Islands (Kingdom Holding Company)
 
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com
 
