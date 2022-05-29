@@ -47,7 +47,7 @@
 
 
 
-▪︎ Musikgenre: 50 Cent G-Unit, Techno 
+▪︎ Musikgenre:  Techno 
 
 
 
