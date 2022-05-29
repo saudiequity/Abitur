@@ -12,15 +12,15 @@
  
 ![Swiss Equity Portfolio](https://user-images.githubusercontent.com/95079463/165912016-2034be7d-1fee-44ce-aa9e-ff7b36432359.png)
 
-▪ Quintet Private Bank in Zürich (Kingdom Holding Company)
+
 
 ▪ Bank J Safra Sarasin (Swiss Equity)
 
 ▪ Commerzbank in Dubai (Brabus AMG)
 
-▪ Mercedes Benz Bank on Cayman Islands (Julius Baer Group Ltd.)
+▪ Mercedes Benz Bank on Cayman Islands (Kingdom Holding Company)
 
-▪︎ Business Contact: ijazbaberahmad@yahoo.com (E-Commerce Startup)
+▪︎ Business Contact: ijazbaberahmad@yahoo.com 
 
 
 
