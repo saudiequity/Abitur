@@ -12,11 +12,7 @@
  
 ![Swiss Equity Portfolio](https://user-images.githubusercontent.com/95079463/165912016-2034be7d-1fee-44ce-aa9e-ff7b36432359.png)
 
-
-
 ▪ Bank J Safra Sarasin (Julius Baer Group Ltd.)
-
-
 
 ▪ Commerzbank in Dubai (Swiss Equity)
 
@@ -32,15 +28,12 @@
 
 ▪︎ Heimat: Bad Wildbad, BW, Germany (Mercedes AMG, Brabus )
 
-
-
-
 ▪︎ Geboren am 14.03.1986  
 
 
 # Contact Details 
 
-▪︎ eMail Address: ijazbaber@ik.me ▪︎ +4915128118401 
+▪︎ eMail Address: ijazbaberahmad@t-online.de ▪︎ +4915128118401 
 
 ▪︎ Contact & Friendship with Lebanese, Egyptian, Spanish, Serbian
 
@@ -49,8 +42,6 @@
 ▪︎ LinkedIn: [@ijaz-ahmad](https://www.linkedin.com/in/ijaz-ahmad-69677b13a/)
 
 ▪︎ Tiktok: [@ijazbaberahmad](https://www.tiktok.com/@ijazbaberahmad/)
-
-
 
 ▪︎ Musikgenre:  Techno 
 
