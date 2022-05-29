@@ -14,7 +14,7 @@
 
 ▪ Goldman Sachs Private Wealth Management in Monaco (Julius Baer Group Ltd.)
 
-▪ Merrill Lynch in Frankfurt (Julius Baer Group Ltd.)
+▪ Merrill Lynch in Dubai (Julius Baer Group Ltd.)
 
 ▪ BNY Mellon in Zürich (Julius Baer Group Ltd.)
 
