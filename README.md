@@ -18,7 +18,7 @@
 
 ▪ Commerzbank in Dubai (Kingdom Holding Company)
 
-▪ Mercedes Benz Bank on Cayman Islands (Mercedes AMG)
+▪ Mercedes Benz Bank on Cayman Islands (Mercedes Brabus AMG)
 
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com 
 
