@@ -16,9 +16,9 @@
 
 ▪ Bank J Safra Sarasin (Swiss Equity)
 
-▪ Commerzbank in Dubai (Brabus AMG)
+▪ Commerzbank in Dubai (Kingdom Holding Company)
 
-▪ Mercedes Benz Bank on Cayman Islands (Kingdom Holding Company)
+▪ Mercedes Benz Bank on Cayman Islands (Mercedes AMG)
 
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com 
 
