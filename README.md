@@ -10,8 +10,6 @@
 
 ▪ Corporate Finance Institute 
 
-▪ Bank J Safra Sarasin (Kingdom Holding Company)
- 
 ![Swiss Equity Portfolio](https://user-images.githubusercontent.com/95079463/165912016-2034be7d-1fee-44ce-aa9e-ff7b36432359.png)
 
 ▪ Commerzbank in Dubai (Brabus AMG)
