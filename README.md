@@ -32,7 +32,7 @@
 
 ▪︎ Tiktok: [@ijazbaberahmad](https://www.tiktok.com/@ijazbaberahmad/)
 
-▪︎ Musikgenre:  Techno 
+▪︎ Musikgenre:  50 Cent G-Unit
 
 
 
