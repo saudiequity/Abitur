@@ -14,11 +14,11 @@
  
 ![Swiss Equity Portfolio](https://user-images.githubusercontent.com/95079463/165912016-2034be7d-1fee-44ce-aa9e-ff7b36432359.png)
 
-▪ Barclays Private Bank (Swiss Equity)
+▪ Barclays Private Bank (Julius Baer Group Ltd.)
 
 ▪ Commerzbank in Dubai (Brabus AMG)
 
-▪ Mercedes Benz Bank on Cayman Islands (Swiss National Bank)
+▪ Mercedes Benz Bank on Cayman Islands (Swiss Equity)
 
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com 
 
