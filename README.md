@@ -14,9 +14,9 @@
 ![Bild1](https://user-images.githubusercontent.com/95079463/171628129-70f295ea-54da-469c-ab73-f94870a4dfb5.png)
 
 
-▪ Commerzbank in Dubai (Brabus Mercedes)
+▪ Commerzbank in Dubai (Brabus AMG)
 
-▪ Mercedes Benz Bank in Bad Wildbad (AMG Motorsport)
+▪ Bank J Safra Sarasin in Dubai (Swiss Equity Corp.)
 
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com 
 
