@@ -22,7 +22,7 @@
 
 # Contact Details 
 
-▪︎ eMail Address: ijazbaberahmad@t-online.de ▪︎ +4915128118401 
+▪︎ eMail Address: ijazbaberahmad@outlook.de ▪︎ +4915128118401 
 
 ▪︎ Contact & Friendship with Lebanese, Egyptian, Spanish, Serbian
 
