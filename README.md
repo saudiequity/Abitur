@@ -10,7 +10,9 @@
 
 ▪ Corporate Finance Institute 
 
-![Swiss Equity Portfolio](https://user-images.githubusercontent.com/95079463/165912016-2034be7d-1fee-44ce-aa9e-ff7b36432359.png)
+
+![Bild1](https://user-images.githubusercontent.com/95079463/171628129-70f295ea-54da-469c-ab73-f94870a4dfb5.png)
+
 
 ▪ Commerzbank in Dubai (Brabus AMG)
 
