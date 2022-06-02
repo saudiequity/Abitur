@@ -14,9 +14,9 @@
 ![Bild1](https://user-images.githubusercontent.com/95079463/171628129-70f295ea-54da-469c-ab73-f94870a4dfb5.png)
 
 
-▪ Commerzbank in Dubai (Brabus AMG)
+▪ Commerzbank in Dubai (Brabus Mercedes)
 
-▪ Mercedes Benz Bank on Cayman Islands (Swiss Equity)
+▪ Mercedes Benz Bank in Bad Wildbad (AMG Motorsport)
 
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com 
 
