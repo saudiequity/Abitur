@@ -16,7 +16,7 @@
 
 
 
-▪ Bank J Safra Sarasin in Dubai (Swiss Equity Corp.)
+▪ Bank J Safra Sarasin in Dubai, DIFC (Swiss Equity Corp.)
 
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com 
 
