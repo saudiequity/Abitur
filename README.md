@@ -36,7 +36,7 @@
 
 • Videos: https://www.vidlii.com/user/baber6880
 
-▪︎ Musikgenre:  50 Cent G-Unit
+▪︎ Musikgenre: Techno
 
 
 
