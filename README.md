@@ -28,7 +28,7 @@
 
 ▪︎ Contact & Friendship with Lebanese, Egyptian, Spanish, Serbian
 
-• Hobbys: Mountainbike Sport
+• Hobbys: UFC Training
 
 ▪︎ Pinterest: [@ijazbaberahmad](https://www.pinterest.de/ijazbaberahmad/)
 
