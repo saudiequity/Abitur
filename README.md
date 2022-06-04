@@ -28,6 +28,8 @@
 
 ▪︎ Contact & Friendship with Lebanese, Egyptian, Spanish, Serbian
 
+• Hobbys: Mountainbike Sport
+
 ▪︎ Pinterest: [@ijazbaberahmad](https://www.pinterest.de/ijazbaberahmad/)
 
 ▪︎ LinkedIn: [@ijaz-ahmad](https://www.linkedin.com/in/ijaz-ahmad-69677b13a/)
