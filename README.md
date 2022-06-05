@@ -6,8 +6,6 @@
 
 ▪︎ International Business Management Institute
 
-• St Gallen HSG
-
 # Swiss Equity Portfolio™️
 
 ▪ Corporate Finance Institute 
