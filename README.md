@@ -6,9 +6,13 @@
 
 ▪︎ International Business Management Institute
 
-• Charité Berlin 
+
+
+
 
 # Swiss Equity Portfolio™️
+
+• Corporate Finance Institute
 
 ![Bild1](https://user-images.githubusercontent.com/95079463/171628129-70f295ea-54da-469c-ab73-f94870a4dfb5.png)
 
