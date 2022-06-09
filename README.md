@@ -2,6 +2,8 @@
 
 ▪︎ Justus-Knecht Gymnasium Bruchsal
 
+• ForstBW Motorsägeschein in Bad Wildbad
+
 # University Education
 
 ▪︎ International Business Management Institute
