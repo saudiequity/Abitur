@@ -26,7 +26,7 @@
 
 ▪︎ eMail Address: ijazbaberahmad@t-online.de ▪︎ +4915128118401 
 
-▪︎ Contact & Friendship with Lebanese, Egyptian, Spanish
+▪︎ Contact & Friendship with Lebanese, Egyptian, Spanish, Serbian
 
 • Hobbys: UFC Training
 
