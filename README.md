@@ -14,7 +14,7 @@
 
 ![Bild1](https://user-images.githubusercontent.com/95079463/171628129-70f295ea-54da-469c-ab73-f94870a4dfb5.png)
 
-▪ Wells Fargo in Dubai, DIFC (Swiss Steel, Sulzer, Oerlikon)
+▪ Wells Fargo in San Francisco, California (Swiss Steel, Sulzer, Oerlikon)
 
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com 
 
