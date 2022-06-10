@@ -28,7 +28,7 @@
 
 ▪︎ Contact & Friendship with Lebanese, Egyptian, Spanish, Serbian
 
-• Hobbys: UFC Training, Blackjack Card Game
+• Hobbys: UFC Training, Blackjack Ca
 
 • XBox Games: Wolfenstein The New Order
 
