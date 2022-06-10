@@ -15,7 +15,7 @@
 ![Bild1 1](https://user-images.githubusercontent.com/95079463/173062915-61d28cb7-3aa7-4236-8c58-55eb180333d0.png)
 
 
-▪ Wells Fargo in Stockholm, Sweden (Swiss Steel, Sulzer, Oerlikon)
+▪ Wells Fargo in San Francisco, California (Swiss Steel, Sulzer, Oerlikon)
 
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com 
 
