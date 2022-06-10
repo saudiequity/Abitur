@@ -23,7 +23,7 @@
 
 ▪︎ eMail Address: ijazbaberahmad@t-online.de ▪︎ +4915128118401 
 
-• Hobbys: UFC Training, Blackjack 21
+• Hobbys: UFC Training, Blackjack 21, Basketball
 
 • XBox Games: Wolfenstein The New Order
 
