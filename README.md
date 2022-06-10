@@ -8,10 +8,6 @@
 
 ▪︎ International Business Management Institute
 
-
-
-
-
 # Swiss Equity Portfolio™️
 
 • Corporate Finance Institute
@@ -26,8 +22,6 @@
 
 ▪︎ eMail Address: ijazbaberahmad@t-online.de ▪︎ +4915128118401 
 
-▪︎ Contact & Friendship with Lebanese, Egyptian, Spanish, Serbian
-
 • Hobbys: UFC Training, Blackjack 21
 
 • XBox Games: Wolfenstein The New Order
@@ -35,8 +29,6 @@
 ▪︎ Pinterest: [@ijazbaberahmad](https://www.pinterest.de/ijazbaberahmad/)
 
 ▪︎ LinkedIn: [@ijaz-ahmad](https://www.linkedin.com/in/ijaz-ahmad-69677b13a/)
-
-
 
 ▪︎ Musikgenre: Techno
 
