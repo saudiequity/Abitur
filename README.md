@@ -16,7 +16,7 @@
 
 
 
-▪ Wells Fargo in San Francisco, California (Swiss Steel, Sulzer, Oerlikon)
+▪ Julius Baer Bank in Berlin (Swiss Steel, Sulzer, Oerlikon)
 
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com 
 
