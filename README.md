@@ -34,7 +34,7 @@
 
 ▪︎ Musikgenre: Techno
 
-• Biete erotische Massagen mit Latex Handschuhen an Svenja Laing und ihre Freundinnen
+• Biete erotische Massagen mit Latex Handschuhen an Svenja Laing und ihre Freundinnen ohne Sex. 
 
 
 
