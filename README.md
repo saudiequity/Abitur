@@ -16,7 +16,7 @@
 
 
 
-▪ Julius Baer Bank in St Gallen (Swiss Steel, Sulzer, Oerlikon)
+▪ Julius Baer Bank in Stuttgart (Swiss Steel, Sulzer, Oerlikon)
 
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com 
 
