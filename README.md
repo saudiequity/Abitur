@@ -6,6 +6,10 @@
 
 • Amazon Web Services Organizations
 
+• SIEMENS Electrical Engineering
+
+• ABB Academy 
+
 # University Education
 
 ▪︎ International Business Management Institute
