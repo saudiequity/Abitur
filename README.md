@@ -4,7 +4,7 @@
 
 • ForstBW Fortbildung in Bad Wildbad
 
-• Amazon Web Services Organizations
+• Amazon Web Services Training
 
 • SIEMENS Electrical Engineering
 
@@ -16,7 +16,7 @@
 
 # Swiss Equity Portfolio™️
 
-• Corporate Finance Institute
+
 
 ![Bild1 1](https://user-images.githubusercontent.com/95079463/173062915-61d28cb7-3aa7-4236-8c58-55eb180333d0.png)
 
