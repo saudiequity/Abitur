@@ -4,7 +4,7 @@
 
 • ForstBW Fortbildung in Bad Wildbad
 
-• Amazon Web Services Organization
+• Amazon Web Services Organizations
 
 # University Education
 
