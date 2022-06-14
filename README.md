@@ -4,7 +4,7 @@
 
 • ForstBW Fortbildung in Bad Wildbad
 
-• Amazon Web Services Training
+• AWS Training
 
 • SIEMENS Electrical Engineering
 
