@@ -16,7 +16,6 @@
 
 ![Bild1 1](https://user-images.githubusercontent.com/95079463/173062915-61d28cb7-3aa7-4236-8c58-55eb180333d0.png)
 
-▪ Julius Baer Bank in Stuttgart, Düsseldorf (Amazon Web Services Organization)
 
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com 
 
