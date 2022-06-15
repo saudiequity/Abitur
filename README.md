@@ -28,8 +28,6 @@
 
 • Hobbys: AMG Motorsport
 
-• XBox Games: Wolfenstein The New Order
-
 ▪︎ Pinterest: [@ijazbaberahmad](https://www.pinterest.de/ijazbaberahmad/)
 
 ▪︎ LinkedIn: [@ijaz-ahmad](https://www.linkedin.com/in/ijaz-ahmad-69677b13a/)
