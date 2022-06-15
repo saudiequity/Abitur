@@ -20,7 +20,7 @@
 
 ![Bild1 1](https://user-images.githubusercontent.com/95079463/173062915-61d28cb7-3aa7-4236-8c58-55eb180333d0.png)
 
-▪ Julius Baer Bank in Stuttgart, Düsseldorf (Robo Advisor Fintech)
+▪ Julius Baer Bank in Stuttgart, Düsseldorf (Real Estate Management)
 
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com 
 
