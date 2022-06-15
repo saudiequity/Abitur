@@ -16,7 +16,7 @@
 
 ![Bild1 1](https://user-images.githubusercontent.com/95079463/173062915-61d28cb7-3aa7-4236-8c58-55eb180333d0.png)
 
-• Bank J Safra Sarasin in Frankfurt, Hessen, Monte-Carlo, Monaco
+• Bank J Safra Sarasin in Frankfurt, Hessen, Germany
 
 • Wells Fargo in San Francisco, California
 
