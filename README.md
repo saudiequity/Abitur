@@ -28,6 +28,8 @@
 
 • Hobbys: AMG Motorsport
 
+• XBox Games: Halo Infinite, Hitman 3, Saints Row Boss
+
 ▪︎ Pinterest: [@ijazbaberahmad](https://www.pinterest.de/ijazbaberahmad/)
 
 ▪︎ LinkedIn: [@ijaz-ahmad](https://www.linkedin.com/in/ijaz-ahmad-69677b13a/)
