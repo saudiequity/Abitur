@@ -4,15 +4,17 @@
 
 • ForstBW Fortbildung in Bad Wildbad
 
+• AWS Training, ABB Academy, OpenSAP
+
 # University Education
 
-▪︎ International Business Management Institute
+• St Gallen HSG
 
 # Swiss Equity Portfolio™️
 
-• AWS Training
+• International Business Management Institute
 
-• ABB Academy
+
 
 ![Bild1 1](https://user-images.githubusercontent.com/95079463/173062915-61d28cb7-3aa7-4236-8c58-55eb180333d0.png)
 
