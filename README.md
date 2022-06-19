@@ -18,7 +18,7 @@
 
 • Quintet Private Bank in Zürich, Switzerland
 
-• Bank J Safra Sarasin in Frankfurt, Hessen, Germany
+• Bank J Safra Sarasin in Monte-Carlo, Monaco
 
 • Wells Fargo in San Francisco, California
 
