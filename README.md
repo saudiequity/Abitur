@@ -22,6 +22,8 @@
 
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com 
 
+• EMail: ijazbaberahmad@outlook.de
+
 # Contact Details 
 
 ▪︎ eMail Address: ijazbaberahmad@t-online.de ▪︎ +4915128118401 
