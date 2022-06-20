@@ -16,7 +16,9 @@
 
 ![Bild1 1](https://user-images.githubusercontent.com/95079463/173062915-61d28cb7-3aa7-4236-8c58-55eb180333d0.png)
 
-• Wells Fargo in Dubai, DIFC, UAE
+• Bank J Safra Sarasin in Dubai, DIFC, UAE
+
+• Quintet Private Bank in Zürich, Switzerland
 
 • Wells Fargo in San Francisco, California
 
