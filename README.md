@@ -20,7 +20,7 @@
 
 • Quintet Private Bank in Zürich, Switzerland
 
-• Wells Fargo in San Francisco, California
+• Bank of America in Dubai, DIFC, UAE
 
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com 
 
