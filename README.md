@@ -8,7 +8,7 @@
 
 # University Education
 
-• Harvard Business School
+• St Gallen HSG
 
 # Swiss Equity Portfolio™️
 
@@ -21,6 +21,8 @@
 • Merrill Lynch in Dubai, DIFC, UAE
 
 • Merrill Lynch in George Town, Cayman Islands
+
+• Merrill Lynch in San Francisco, California
 
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com 
 
