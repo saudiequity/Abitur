@@ -18,9 +18,9 @@
 
 • Bank J Safra Sarasin in Dubai, DIFC, UAE
 
-• Quintet Private Bank in Zürich, Switzerland
+• Merrill Lynch in Dubai, DIFC, UAE
 
-• Bank of America in Dubai, DIFC, UAE
+• Merrill Lynch in George Town, Cayman Islands
 
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com 
 
