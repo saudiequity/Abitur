@@ -19,9 +19,9 @@
 
 • Bank J Safra Sarasin in Dubai, DIFC, UAE
 
-• Merrill Lynch in San Francisco, California
+• Merrill Lynch in Dubai, DIFC, UAE
 
-• Lombard Odier in Abu Dhabi, UAE
+• Union Bancaire Priveé in Dubai, DIFC, UAE
 
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com 
 
