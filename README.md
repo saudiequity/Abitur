@@ -21,7 +21,7 @@
 
 • Merrill Lynch in Dubai, DIFC, UAE
 
-• Union Bancaire Priveé in Dubai, DIFC, UAE
+• Union Bancaire Privée in Dubai, DIFC, UAE
 
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com 
 
