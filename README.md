@@ -19,7 +19,7 @@
 
 • Bank J Safra Sarasin in Dubai, DIFC, UAE
 
-• Merrill Lynch in Dubai, DIFC, UAE
+• Merrill Lynch in San Francisco, California
 
 • Lombard Odier in Abu Dhabi, UAE
 
