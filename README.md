@@ -21,7 +21,7 @@
 
 • Merrill Lynch in Dubai, DIFC, UAE
 
-• Vontobel in Dubai, DIFC, UAE
+• Lombard Odier in Abu Dhabi, UAE
 
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com 
 
