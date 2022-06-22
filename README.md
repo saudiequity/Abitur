@@ -21,7 +21,7 @@
 
 • Merrill Lynch in Dubai, DIFC, UAE
 
-• Union Bancaire Privée in Dubai, DIFC, UAE
+• Vontobel in Dubai, DIFC, UAE
 
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com 
 
