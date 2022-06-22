@@ -19,9 +19,9 @@
 
 • Bank J Safra Sarasin in Dubai, DIFC, UAE
 
+• Merrill Lynch in San Francisco, California
 
-
-
+• Pictet Asset Management in Genevé, Switzerland
 
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com 
 
