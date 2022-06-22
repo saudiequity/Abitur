@@ -21,7 +21,7 @@
 
 • Merrill Lynch in San Francisco, California
 
-• Pictet Asset Management in Genevé, Switzerland
+• Lombard Odier in Abu Dhabi, UAE
 
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com 
 
