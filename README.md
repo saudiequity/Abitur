@@ -18,7 +18,7 @@
 
 • Merrill Lynch in Dubai, DIFC, UAE
 
-• Bank J Safra Sarasin in Dubai, DIFC, UAE
+• Quintet Private Bank in Europe
 
 • Merrill Lynch in San Francisco, California
 
