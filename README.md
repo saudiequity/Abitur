@@ -34,7 +34,7 @@
 
 ▪︎ eMail Address: ijazbaberahmad@t-online.de ▪︎ +4915128118401 
 
-• Hobbys: Porsche Motorsport
+• Hobbys: AMG Motorsport
 
 • XBox Games: Halo Infinite, Hitman 3, Saints Row Boss
 
