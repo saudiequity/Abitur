@@ -22,10 +22,6 @@
 
 • Quintet Private Bank in Europe
 
-• Merrill Lynch in San Francisco, California 
-
-
-
 • Lombard Odier in Abu Dhabi, UAE
 
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com 
