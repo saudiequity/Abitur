@@ -6,6 +6,8 @@
 
 • AWS Training, ABB Academy
 
+• New York Institute of Finance
+
 # University Education
 
 • St Gallen HSG
