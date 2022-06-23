@@ -20,9 +20,7 @@
 
 • BNY Mellon in Abu Dhabi, UAE
 
-
-
-• Lombard Odier in Abu Dhabi, UAE
+• Merrill Lynch in San Francisco
 
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com 
 
