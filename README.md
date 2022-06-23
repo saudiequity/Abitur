@@ -20,7 +20,7 @@
 
 • BNY Mellon in Abu Dhabi, UAE
 
-• Quintet Private Bank in Europe
+
 
 • Lombard Odier in Abu Dhabi, UAE
 
