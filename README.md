@@ -16,13 +16,13 @@
 
 ![Bild1 1](https://user-images.githubusercontent.com/95079463/173062915-61d28cb7-3aa7-4236-8c58-55eb180333d0.png)
 
-• Bank J Safra Sarasin in Dubai, DIFC, UAE
+• BNY Mellon in Abu Dhabi, UAE
 
 • Quintet Private Bank in Europe
 
 • Merrill Lynch in San Francisco, California 
 
-• Merrill Lynch in Dubai, DIFC, UAE
+
 
 • Lombard Odier in Abu Dhabi, UAE
 
