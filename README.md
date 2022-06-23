@@ -20,7 +20,9 @@
 
 • Quintet Private Bank in Europe
 
+• Merrill Lynch in San Francisco, California 
 
+• Merrill Lynch in Dubai, DIFC, UAE
 
 • Lombard Odier in Abu Dhabi, UAE
 
