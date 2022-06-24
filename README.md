@@ -22,9 +22,7 @@
 
 • InsingerGilissen A Quintet Private Bank
 
-• Lombard Odier 
 
-• Bank J Safra Sarasin
 
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com 
 
