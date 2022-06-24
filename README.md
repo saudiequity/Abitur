@@ -18,9 +18,9 @@
 
 ![Bild1 1](https://user-images.githubusercontent.com/95079463/173062915-61d28cb7-3aa7-4236-8c58-55eb180333d0.png)
 
-• BNY Mellon in Abu Dhabi, UAE
+• BNY Mellon in San Francisco, California
 
-• Merrill Lynch in San Francisco
+• Merrill Lynch in San Francisco, Kalifornien
 
 • Bank J Safra Sarasin in Europe
 
