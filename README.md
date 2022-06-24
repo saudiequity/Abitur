@@ -22,9 +22,9 @@
 
 • InsingerGilissen A Quintet Private Bank
 
-• Merrill Lynch in San Francisco, Kalifornien
+• Lombard Odier 
 
-• Bank J Safra Sarasin in Europe
+• Bank J Safra Sarasin
 
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com 
 
