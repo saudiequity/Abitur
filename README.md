@@ -6,7 +6,7 @@
 
 • AWS Training, ABB Academy
 
-• New York Institute of Finance
+
 
 # University Education
 
@@ -21,6 +21,8 @@
 • BNY Mellon in Abu Dhabi, UAE
 
 • Merrill Lynch in San Francisco
+
+• Bank J Safra Sarasin in Europe
 
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com 
 
