@@ -12,7 +12,7 @@
 
 # University Education
 
-• St Gallen HSG
+• INSEAD Online
 
 # Swiss Equity Portfolio™️
 
