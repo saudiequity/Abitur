@@ -14,7 +14,7 @@
 
 • ESSEC Business School Online
 
-• École Polytechnique Online
+
 
 # Swiss Equity Portfolio™️
 
