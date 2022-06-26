@@ -8,13 +8,13 @@
 
 • ABB Academy
 
-
-
 # University Education
 
 • INSEAD Online
 
 • ESSEC Business School Online
+
+• École Polytechnique Online
 
 # Swiss Equity Portfolio™️
 
