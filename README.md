@@ -14,6 +14,8 @@
 
 • INSEAD Online
 
+• ESSEC Business School Online
+
 # Swiss Equity Portfolio™️
 
 • International Business Management Institute
