@@ -10,11 +10,8 @@
 
 # University Education
 
-• INSEAD Online
 
-• ESSEC Business School Online
 
-• HEC Paris Online
 
 # Swiss Equity Portfolio™️
 
