@@ -14,6 +14,8 @@
 
 • ESSEC Business School Online
 
+• HEC Paris Online
+
 # Swiss Equity Portfolio™️
 
 • International Business Management Institute
