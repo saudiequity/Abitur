@@ -10,7 +10,7 @@
 
 # University Education
 
-
+• New York Institute of Finance
 
 
 # Swiss Equity Portfolio™️
