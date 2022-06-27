@@ -14,19 +14,19 @@
 
 • ESSEC Business School Online
 
-
-
 # Swiss Equity Portfolio™️
 
 • International Business Management Institute
 
 • SwissEquity Ltd.
 
+• Merrill Lynch
+
 ![Bild1 1](https://user-images.githubusercontent.com/95079463/173062915-61d28cb7-3aa7-4236-8c58-55eb180333d0.png)
 
 # Hotel Management Corp. 
 
-• Goldman Sachs 
+• Bank J Safra Sarasin
 
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com 
 
