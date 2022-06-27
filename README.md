@@ -6,7 +6,7 @@
 
 • AWS Training / ABB University
 
-• HEC 
+
 
 # University Education
 
