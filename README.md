@@ -4,14 +4,11 @@
 
 • ForstBW Fortbildung in Bad Wildbad
 
-• AWS Training
-
-
+• AWS Training / ABB University
 
 # University Education
 
 • New York Institute of Finance
-
 
 # Swiss Equity Portfolio™️
 
