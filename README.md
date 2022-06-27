@@ -14,7 +14,7 @@
 
 • International Business Management Institute
 
-• SwissEquity Ltd.
+• SwissEquity LLC
 
 • Merrill Lynch
 
