@@ -6,7 +6,7 @@
 
 • AWS Training / ABB University
 
-• St Gallen HSG
+
 
 # University Education
 
