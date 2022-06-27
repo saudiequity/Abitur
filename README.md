@@ -6,7 +6,7 @@
 
 • AWS Training / ABB University
 
-• HEC Paris / ESSEC / INSEAD
+• HEC 
 
 # University Education
 
