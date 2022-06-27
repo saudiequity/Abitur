@@ -6,7 +6,7 @@
 
 • AWS Training
 
-• ABB Academy
+
 
 # University Education
 
