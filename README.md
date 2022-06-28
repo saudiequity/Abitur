@@ -6,6 +6,8 @@
 
 • ABB University
 
+• HEC Paris / INSEAD / ESSEC Online
+
 # University Education
 
 • New York Institute of Finance
