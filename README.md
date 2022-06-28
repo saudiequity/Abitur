@@ -4,8 +4,6 @@
 
 • ForstBW Fortbildung in Bad Wildbad
 
-• ABB University
-
 • HEC Paris / INSEAD / ESSEC / Ecole Polytechnique Online
 
 # University Education
