@@ -6,7 +6,7 @@
 
 • ABB University
 
-• HEC Paris / INSEAD / ESSEC Online
+• HEC Paris / INSEAD / ESSEC / Ecole Polytechnique Online
 
 # University Education
 
