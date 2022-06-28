@@ -22,6 +22,8 @@
 
 # Hotel Management Corp. 
 
+• Bocconi University
+
 • Bank J Safra Sarasin
 
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com 
