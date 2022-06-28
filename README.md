@@ -4,7 +4,7 @@
 
 • ForstBW Fortbildung in Bad Wildbad
 
-• AWS Training/ ABB University
+• ABB University
 
 # University Education
 
