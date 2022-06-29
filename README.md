@@ -12,6 +12,8 @@
 
 • ESSEC Business School
 
+• Bocconi University
+
 # Swiss Equity Portfolio™️
 
 • SwissEquity SAS
