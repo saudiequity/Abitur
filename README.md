@@ -12,7 +12,7 @@
 
 • ESSEC Business School
 
-• Bocconi University
+• Università Bocconi
 
 # Swiss Equity Portfolio™️
 
