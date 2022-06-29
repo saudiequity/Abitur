@@ -4,23 +4,25 @@
 
 • ForstBW Fortbildung in Bad Wildbad
 
-• HEC Paris / ESSEC Business School
-
 # University Education
-
-• New York Institute of Finance
-
-# Swiss Equity Portfolio™️
 
 • International Business Management Institute
 
-• SwissEquity LLC
+• New York Institute of Finance
+
+• HEC Paris
+
+• ESSEC Business School
+
+# Swiss Equity Portfolio™️
+
+• SwissEquity SAS
 
 • Lombard Odier
 
 ![Bild1 1](https://user-images.githubusercontent.com/95079463/173062915-61d28cb7-3aa7-4236-8c58-55eb180333d0.png)
 
-# Hotel Management Corp. 
+# Hotel Resorts Management S.A.
 
 • Bank J Safra Sarasin
 
