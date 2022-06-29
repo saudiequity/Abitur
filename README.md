@@ -8,8 +8,6 @@
 
 • International Business Management Institute
 
-• New York Institute of Finance
-
 • HEC Paris
 
 • ESSEC Business School
