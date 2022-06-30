@@ -10,7 +10,7 @@
 
 • HEC Paris
 
-
+• Ecole Polytechnique
 
 # Swiss Equity Portfolio™️
 
