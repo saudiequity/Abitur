@@ -10,7 +10,11 @@
 
 • HEC Paris
 
-• Ecole Polytechnique
+• Ecole Polytechnique 
+
+• ESSEC 
+
+• INSEAD
 
 # Swiss Equity Portfolio™️
 
