@@ -10,7 +10,7 @@
 
 • HEC Paris
 
-• Università Bocconi
+
 
 # Swiss Equity Portfolio™️
 
