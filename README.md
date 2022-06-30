@@ -16,7 +16,7 @@
 
 • INSEAD
 
-• Universitá Bocconi
+
 
 # Swiss Equity Portfolio™️
 
