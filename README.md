@@ -24,10 +24,7 @@
 
 ![Bild1 1](https://user-images.githubusercontent.com/95079463/173062915-61d28cb7-3aa7-4236-8c58-55eb180333d0.png)
 
-• Lombard Odier
-
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com 
-
 
 • Mobile Phone Number: +491753785108
 
