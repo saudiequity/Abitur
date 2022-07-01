@@ -8,16 +8,6 @@
 
 • International Business Management Institute
 
-• HEC Paris
-
-• Ecole Polytechnique 
-
-• ESSEC 
-
-• INSEAD
-
-• Universitá Bocconi
-
 # Swiss Equity Portfolio™️
 
 • SwissEquity SARL
