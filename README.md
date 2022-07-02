@@ -4,13 +4,15 @@
 
 • ForstBW Fortbildung in Bad Wildbad
 
-# University Education
+# University Education 
 
 • International Business Management Institute
 
 • New York Institute of Finance
 
 • Universitá Bocconi
+
+• INSEAD
 
 # Swiss Equity Portfolio™️
 
