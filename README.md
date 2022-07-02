@@ -8,6 +8,10 @@
 
 • International Business Management Institute
 
+• New York Institute of Finance
+
+• Universitá Bocconi
+
 # Swiss Equity Portfolio™️
 
 • SwissEquity LLP
