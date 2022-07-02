@@ -12,7 +12,7 @@
 
 • Universitá Bocconi
 
-• INSEAD
+• Alfaisal University
 
 # Swiss Equity Portfolio™️
 
