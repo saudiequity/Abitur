@@ -8,10 +8,6 @@
 
 • International Business Management Institute
 
-
-
-• Universitá Bocconi
-
 • Alfaisal University
 
 # Swiss Equity Portfolio™️
