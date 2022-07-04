@@ -18,6 +18,8 @@
 
 • Bank J Safra Sarasin
 
+• Lombard Odier
+
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com 
 
 • Mobile Phone Number: +491753785108
