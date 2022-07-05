@@ -10,7 +10,7 @@
 
 • Alfaisal University
 
-# Swiss Equity Portfolio™️
+# Saudi Equity Portfolio™️
 
 • SaudiEquity LLP / SARL
 
