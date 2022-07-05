@@ -14,7 +14,7 @@
 
 • SaudiEquity LLP / SARL
 
-![Swiss Equity Portfolio](https://user-images.githubusercontent.com/95079463/177292805-f0195eb0-af42-4062-b7bb-b6357f5c7a9c.jpg)
+![Saudi Equity Portfolio](https://user-images.githubusercontent.com/95079463/177391716-5dd27bbe-f630-4760-8dd2-3390ef96deda.jpg)
 
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com 
 
