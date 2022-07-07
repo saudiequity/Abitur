@@ -18,9 +18,7 @@
 
 # Asia Equity Portfolio
 
-
-
-
+![Asia Equity](https://user-images.githubusercontent.com/95079463/177746067-6fb65859-542c-422a-b121-97a241fa7ee5.jpg)
 
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com 
 
