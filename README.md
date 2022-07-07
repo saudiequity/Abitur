@@ -14,7 +14,7 @@
 
 • SaudiEquity LLP / SARL
 
-![Saudi Equity Portfolio](https://user-images.githubusercontent.com/95079463/177391716-5dd27bbe-f630-4760-8dd2-3390ef96deda.jpg)
+![Saudi Equity](https://user-images.githubusercontent.com/95079463/177747127-b1fec875-2944-4861-9165-2445ad7d1766.jpg)
 
 # Asia Equity Portfolio
 
