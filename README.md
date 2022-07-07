@@ -10,11 +10,17 @@
 
 • Alfaisal University
 
-# Saudi Equity Portfolio™️
+# Saudi Equity Portfolio
 
 • SaudiEquity LLP / SARL
 
 ![Saudi Equity Portfolio](https://user-images.githubusercontent.com/95079463/177391716-5dd27bbe-f630-4760-8dd2-3390ef96deda.jpg)
+
+# Asia Equity Portfolio
+
+
+
+
 
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com 
 
