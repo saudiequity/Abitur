@@ -26,7 +26,7 @@
 
 # Contact Details 
 
-▪︎ eMail Address: ijazbaberahmad@t-online.de ▪︎ +4915128118401 
+▪︎ eMail Address: babermillennium@hotmail.com ▪︎ +4915128118401 
 
 • Hobbys: Brabus / AMG Motorsport
 
