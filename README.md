@@ -24,11 +24,11 @@
 
 • Mobile Phone Number: +491753785108
 
-# Real Estate Business in Monaco
+# Real Estate Business in Monaco, Dubai
 
 • Goldman Sachs in Monte-Carlo, Monaco
 
-• Lombard Odier in Abu Dhabi, UAE
+• Wells Fargo in Dubai, UAE
 
 # Contact Details 
 
