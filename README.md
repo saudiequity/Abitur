@@ -24,6 +24,10 @@
 
 • Mobile Phone Number: +491753785108
 
+# Real Estate Business in Qatar, Doha
+
+• Bank J. Safra Sarasin in Doha, Qatar
+
 # Contact Details 
 
 ▪︎ eMail Address: babermillennium@hotmail.com ▪︎ +4915128118401 
