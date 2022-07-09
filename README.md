@@ -24,9 +24,9 @@
 
 • Mobile Phone Number: +491753785108
 
-# Real Estate Business in Qatar, Doha
+# Real Estate Business in Monaco
 
-• Bank J. Safra Sarasin in Doha, Qatar
+• Goldman Sachs in Monte-Carlo, Monaco
 
 # Contact Details 
 
