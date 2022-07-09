@@ -28,6 +28,8 @@
 
 • Goldman Sachs in Monte-Carlo, Monaco
 
+• Lombard Odier in Abu Dhabi, UAE
+
 # Contact Details 
 
 ▪︎ eMail Address: babermillennium@hotmail.com ▪︎ +4915128118401 
