@@ -24,11 +24,11 @@
 
 • Mobile Phone Number: +491753785108
 
-# Real Estate Business in Monaco, Dubai
+# Real Estate Business in Monaco, Duesseldorf
 
 • Goldman Sachs in Monte-Carlo, Monaco
 
-• Wells Fargo in Dubai, UAE
+• Wells Fargo in Duesseldorf, NRW, Germany
 
 # Contact Details 
 
