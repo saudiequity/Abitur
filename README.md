@@ -4,6 +4,12 @@
 
 • ForstBW Fortbildung in Bad Wildbad
 
+# Programming Language
+
+• Borland Turbo Pascal
+
+• Embarcadero Object Pascal
+
 # University Education 
 
 • International Business Management Institute
