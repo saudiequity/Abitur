@@ -30,11 +30,9 @@
 
 • Mobile Phone Number: +491753785108
 
-# Real Estate Business in Monaco, Tokyo
+# Real Estate Business in Monaco, Monte-Carlo
 
 • Goldman Sachs in Monte-Carlo, Monaco
-
-• Wells Fargo in Tokyo, Japan
 
 # Contact Details 
 
