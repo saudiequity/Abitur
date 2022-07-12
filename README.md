@@ -10,6 +10,10 @@
 
 • Embarcadero Object Pascal
 
+# Professional Training
+
+• Amazon Web Services Training
+
 # University Education 
 
 • International Business Management Institute
