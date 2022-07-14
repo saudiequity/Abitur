@@ -14,6 +14,8 @@
 
 • Amazon Web Services Training
 
+• Cisco Enterpreneurship
+
 # University Education 
 
 • International Business Management Institute
