@@ -12,9 +12,7 @@
 
 # Professional Training
 
-• Amazon Web Services Training
-
-• Cisco Entrepreneurship
+• Cisco Network Academy Entrepreneurship
 
 # University Education 
 
