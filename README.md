@@ -14,7 +14,7 @@
 
 • Amazon Web Services Training
 
-• Cisco Enterpreneurship
+• Cisco Entrepreneurship
 
 # University Education 
 
