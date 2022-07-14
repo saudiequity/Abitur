@@ -8,8 +8,6 @@
 
 • Borland Turbo Pascal
 
-• Embarcadero Object Pascal
-
 # Professional Training
 
 • Cisco Network Academy Entrepreneurship
@@ -17,8 +15,6 @@
 # University Education 
 
 • International Business Management Institute
-
-• Alfaisal University
 
 # Saudi Equity Portfolio
 
