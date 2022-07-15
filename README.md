@@ -2,7 +2,7 @@
 
 ▪︎ Justus-Knecht Gymnasium Bruchsal
 
-# Advanced Training
+# Continuing Education
 
 • ForstBW Fortbildung in Bad Wildbad
 
