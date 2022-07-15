@@ -6,6 +6,8 @@
 
 • SIEMENS Elektrotechnik
 
+• AWS Training
+
 # Programming Language
 
 • Borland Turbo Pascal
