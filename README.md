@@ -2,6 +2,8 @@
 
 ▪︎ Justus-Knecht Gymnasium Bruchsal
 
+# Advanced Training
+
 • ForstBW Fortbildung in Bad Wildbad
 
 • SIEMENS Elektrotechnik
