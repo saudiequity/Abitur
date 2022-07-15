@@ -8,6 +8,8 @@
 
 • AWS Training
 
+• ABB Academy
+
 # Programming Language
 
 • Borland Turbo Pascal
