@@ -2,15 +2,15 @@
 
 ▪︎ Justus-Knecht Gymnasium Bruchsal
 
-# Continuing Education
+
 
 • ForstBW Fortbildung in Bad Wildbad
 
-• SIEMENS Elektrotechnik
 
-• AWS Training
 
-• ABB Academy
+
+
+
 
 # Programming Language
 
