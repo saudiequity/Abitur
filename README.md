@@ -2,15 +2,7 @@
 
 ▪︎ Justus-Knecht Gymnasium Bruchsal
 
-
-
 • ForstBW Fortbildung in Bad Wildbad
-
-
-
-
-
-
 
 # Programming Language
 
@@ -37,10 +29,6 @@
 ▪︎ Business Contact: ijazbaberahmad@yahoo.com 
 
 • Mobile Phone Number: +491753785108
-
-# Real Estate Business in Monaco, Monte-Carlo
-
-• Goldman Sachs in Monte-Carlo, Monaco
 
 # Contact Details 
 
