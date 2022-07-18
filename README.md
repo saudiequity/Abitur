@@ -34,7 +34,7 @@
 
 ▪︎ eMail Address: babermillennium@hotmail.com ▪︎ +4915128118401 
 
-• Hobbys: NASCAR, Brabus Motorsport
+• Hobbys: Brabus DTM Motorsport
 
 • XBox Games: Halo Infinite, Hitman 3, Saints Row Boss
 
