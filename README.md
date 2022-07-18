@@ -16,11 +16,11 @@
 
 • International Business Management Institute
 
-# Saudi Equity Portfolio
 
-• SaudiEquity LLP / SARL
 
-![Saudi Equity Portfolio](https://user-images.githubusercontent.com/95079463/177783667-dc04b342-843a-4da7-b716-5a81eeb639ed.jpg)
+
+
+
 
 # Asia Equity Portfolio
 
