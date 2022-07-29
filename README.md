@@ -22,7 +22,7 @@
 
 ▪︎ Business Contact: ijazbaberahmad@t-online.de
 
-• Mobile Phone Number: +491753785108
+▪︎ Business contact: ijazbaber@ik.me
 
 # Contact Details 
 
