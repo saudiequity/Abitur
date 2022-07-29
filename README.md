@@ -8,9 +8,13 @@
 
 • Borland Turbo Pascal
 
+• Embarcadero Delphi
+
 # Professional Training
 
 • Cisco Network Academy Entrepreneurship
+
+• SIEMENS Sitrain Academy Eletrical Engineering
 
 # University Education 
 
