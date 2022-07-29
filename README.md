@@ -20,13 +20,19 @@
 
 • International Business Management Institute
 
-▪︎ Business Contact: ijazbaberahmad@yahoo.com 
+▪︎ Business Contact: ijazbaberahmad@t-online.de
 
 • Mobile Phone Number: +491753785108
 
 # Contact Details 
 
 ▪︎ eMail Address: babermillennium@hotmail.com ▪︎ +4915128118401 
+
+▪︎ eMail Address: babermillennium@yahoo.com 
+
+▪︎ email Address: babermillennium@hotmail.com
+
+▪︎ email Address: babermillennium@gmail.com
 
 • Hobbys: Brabus DTM Motorsport
 
