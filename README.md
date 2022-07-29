@@ -30,8 +30,6 @@
 
 ▪︎ eMail Address: babermillennium@yahoo.com 
 
-▪︎ email Address: babermillennium@hotmail.com
-
 ▪︎ email Address: babermillennium@gmail.com
 
 • Hobbys: Brabus DTM Motorsport
